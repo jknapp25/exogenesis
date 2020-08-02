@@ -457,53 +457,64 @@ The orange closed in on the alien world and returned to distilled shapes with fa
 
 The glass clicked as it tilted upward. A hostile wind hit him in the face.
 
-The world around him was far different than the glass had shown him,  strangely familiar. Though his adrenaline called him not to admire it but to act.
+The world around him was far different than the glass had shown him, strangely familiar. Though his adrenaline called him not to admire it but to move.
 
-The delicate balance seemed more affected by the wind than his own weight moving around the machine. He was able to make his was climbing down the tread of one of the tracks like a ladder laying on a wall. The ceaseless wind was trying here and there to distract or deter him but he continued on.
+The delicate balance seemed more affected by the wind than his own weight moving around the machine. He was able to make his way down climbing the tread of one of the tracks like a ladder laying against a wall. The ceaseless wind was trying here and there to distract or deter him but he continued on.
 
-From the outside the machine below looked nearly identical to his but had different numbers along the side.
+From the outside the machine below looked nearly identical to his but had a different scattering of numbers along it's side.
 
 He landed on its track and could see the arm of the being hanging up above him. If the wind were to tilt his machine largely to one side such that it slid in that direction, the arm might be crushed.
 
-He climbed up the track to get to the point where he could climb up to the being. Tiny sharp crystals cracked under almost every one of his steps as he moved. The crash had misshapen the bottom machine greatly, to thee point where the cockpit was now bent downward at a steep angle.
+He climbed up the track to get to the point where he could climb up to the being. Tiny sharp crystals cracked under almost every one of his steps as he moved. The crash had misshapen the bottom machine to the point where the cockpit was now bowing downward at a steep angle.
 
-He was able to find footing as he tried to climb the steps on the side and emerged over the opposite side of the being into it's cockpit.
+He was able to find footing as he tried to climb the indents on the side and emerged over the opposite side of the being into it's cockpit.
 
 Hello. He shouted over the growingly fierce wind and whining of the perched heavy object above them. HELLO. Can you move! His shouts made no difference, the only movement came from the wind whipping its long dark hair back and forth.
 
-He lifted himself up using the precipice of the cockpit where the glass once met the body and growled in pain. A small gash across his hand had embedded within it one of the shiny crystals. He pulled it out whincing.
+He lifted himself up using the precipice of the cockpit where the glass once met the body and flopped across the edge like a used towel, growling in pain. A gash across his hand sparkled with tiny crystals like a rare red jewel. He pulled it the pieces, whincing.
 
 He now sat only a foot away from the being on the edge of its seat.
 
-It's shape was like his but different, though it's suit disguised it, he could tell from it's size and the the size of it's hand that it was smaller than him. Nothing was frightening about it.
+It's shape was like his but different, though it's suit disguised it, he could tell from it's size and the the size of it's hand that it was smaller than him. And nothing was frightening about it.
 
-He leaned over and slowly pressed the sporadic tendrils of hair back away from it's face. The sight beneath astounded him to his core. He could feel something awaken deep inside himself. This being was beyond belief incredible.
+He leaned over and slowly pressed the floating tendrils of hair away from it's face. What they revealed to him, astounded him to his core. Something awakened deep inside himself. This being was beyond belief incredible.
 
-Reaching across it, he touched it's head, soft but moist. He turned it toward himself. It's eyes remained closed but the opposite side of it's head revealed a ghastly mixture of blood and hair streaming down onto the it's suit and the place on the machine where it had rested. He drew back within himself knowing inherently the severity of what had happened.
+Reaching across it, he softly touched it's head, wet somehow. He turned it toward himself. It's eyes remained closed but the opposite side of it's head revealed a ghastly mixture of blood and hair streaming down onto it's suit and the place on the machine where it had rested. He drew back within himself knowing inherently, the severity of what had happened.
 
-The position they were in was growing very hostile, and the wind was slapping them back and forth. Without hesitation, he lifted it up to the edge of the machine and looked down. I think I can get it down.
+The position they were in was growing very hostile, and the wind was slapping them back and forth. Without hesitation, he shifted to the edge and looked below. I think I can get it down.
 
+For a few moments, he crouched in front of the alien. Examining it's shapes to determine how he might move and lower it down without hurting it moreso. His focus was intermittently interrupted by the shear sight of it. It took all of him not to simply freeze and admire it.
 
+Snapping free of it's aura. He had a plan in mind.
 
+He grabbed one of its arms and turned it so it faced the edge of the cockpit and then lied it down across the seat. He examined the edge of the cockpit, the same kind of spot where his hand had been gashed, littered with more tiny knives. He kicked these off with his boot one by one and then felt it for any remaining pain points. It was clear.
 
+He then lifted the alien up and sat it on the edge with it's legs dangling freely in the rough wind.
 
+He stood behind it, crouching slightly below the enormous piece of machinery looming above them. He then took it's arms and held them above it's head and pressed it forward with his knees.
 
+It slid off the edge with minimal effort forcing him to grasp as tightly as he possibly could to keep it from falling down. The adrenaline was now fully coursing, giving him the additional strength his week muscles were in such need of. Leaning at the waste, he was able to loewr it almost to where it's legs touched the track below, but it wasn't enough. Still grasping as tightly as he could, he crouched slowly, until his midfront was pressing on the edge. It's body was now halfway collapsed on the track, but he was afraid it's head might hit hard. He let go with one hand to get more distance and then was able to finish setting it as softly as he could.
 
+Utterly broken he hung over the edge, looking down at it's helpless form below. He felt as though his body wouldn't move anymore, and he closed his eyes. The shifting grayness above him roared. The crackling sound bounced off the dramatic terrain like a glass room. It brought to his attention the ounce of energy remaining within.
 
+He lowered himself over and down the edge and landed next to the alien.
 
+Getting below it and starting on a knee, he was able to lift it up with a great struggle and a gutteral sound.
 
-Opens his airlock
-Pulls her in
-Ride out the storm in his machine
-Go's back to his module
-His stack of pillars rolled onto his home pod, crushing it
-He is able to pry open the airlock and put his hand on the sparking scanner...
-Cracked wall is flashing. "LEAVE", "LEAVE", "LEAVE NOW", "FIND THE CREATURE", "FIND THE CREATURE"
-His module is destroyed, but they are able to scavenge some food
-Water module is destroyed
-Takes her to a stream for water. Remembers sitting in the stream before.
-She's waking but barely conscious
-Holding her in the stream, he touches her face and cries loudly. She regains consciousness.
-She touches his face. "You're like me."
-"Yes, I believe so. But you're very different."
-Meets the girl, she’s the most incredible thing he’s ever seen, even more beautiful than the world
+These tracks were smaller than the ones on his machine and he was able to jump off them onto a nearby rock outcropping. The pillars surrounding, didn't feel like enough cover from the angry force above them, so he took the being below the two machines, between the tracks of the lower one.
+
+After getting fully underneath, he collapsed next to it with little left inside him.
+
+Now that he had touched it, he just wanted to hold it, not only for it's sake but for something else. Something he needed so desperately but had been starved of for so long. He wanted to scream but had not the energy left.
+
+At once, water came flowing down below the machine at the same time it came from his eyes. He gripped the being tightly, pushing aside its hair and held its head close to his. Slowly movign closer until it's forhead touched his. His eyes recessed, and he pressed his brow low, the tears and water growing.
+
+The hair on the alien started lifting and again the light burst happened, louder than anything he had ever heard before, striking the mountain of machinery they lied beaneath. He held it close, knowing not what would happen.
+
+For hours this continued.
+
+He was able to fall asleep a few times but awoke to the sound of every strike. And when his eyes cracked open, every time he saw a shape in the darkness at one of the openings.
+
+It stood, four legged, disappearing into the darkness as the light dissippated, but eyes piercing through. Watching, and watching, and watching.
+
+He was too tired to think anything of it, and dosed off again and again.
