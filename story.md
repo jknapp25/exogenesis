@@ -515,6 +515,6 @@ For hours this continued.
 
 He was able to fall asleep a few times but awoke to the sound of every strike. And when his eyes cracked open, every time he saw a shape in the darkness at one of the openings.
 
-It stood, four legged, disappearing into the darkness as the light dissippated, but eyes piercing through. Watching, and watching, and watching.
+It stood, four legged, disappearing into the darkness as the light flashes dissipated, but eyes piercing through. Watching, and watching, and watching.
 
 He was too tired to think anything of it, and dosed off again and again.
