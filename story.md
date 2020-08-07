@@ -519,7 +519,7 @@ A particularly violent light strike woke him while the air was rushing back and 
 
 The alien was still motionless.
 
-Instead of fear, he recognized the opportunity. Now his machine was free to move around, but he the atmosphere was still very tumultuous. He rested his head back down, with atleast now a plan.
+Instead of fear, he recognized the opportunity. Now his machine was free to move around, but the atmosphere was still very tumultuous. He rested his head back down, with atleast now a plan.
 
 # Part 7
 
