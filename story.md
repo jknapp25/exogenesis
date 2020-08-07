@@ -527,9 +527,9 @@ His clothing made a strange sound as his movement peeled it from the sticky grou
 
 The alien, still lifeless, had missed the entire commotion. Though probably for the better. He thought.
 
-He crawled to the opening to have a look at the surroundings. Pillars, now very different things than what he was used to seeing, lied about in chaotic positions, here and there. Even large rocks seemed to have been thrown about by the previous nights tempest.
+He crawled to the opening to have a look at the surroundings. The pillars, now very different things than what he was used to seeing, lied about in chaotic positions, here and there. Even large rocks seemed to have been thrown about by the previous nights tempest.
 
-He stood and walked around, the sky still grayish but now cracking and shooting lazers of light upon various spots on the hillsides. The terrain arose on either sides of him like a folded piece of paper. They were coated in what looked like thick green clouds emerging from their stems. Together they created an impenetrable wall of color, only breaking for large patches of red ground and rocky outcroppings like shelves placed high up on the wall.
+He stood and walked around, the sky still grayish but now cracking and shooting lazers of light upon various spots on the hillsides. The terrain arose on either sides of him like a curled piece of paper. They were coated in what looked like thick green clouds emerging from their stems. Together they created an impenetrable wall of color, only breaking for large patches of red ground and rocky outcroppings like shelves placed high up on the wall.
 
 The sight was all consuming but familiar to him in the way it was when he first emerged from the cockpit of his machine. Almost a feeling like he had seen it before.
 
@@ -537,4 +537,18 @@ His machine still lied upon the smaller one below, but atleast it was touching d
 
 Let's give it a try! He said to himself. As if anything made much sense in this moment. He figured why not return to something that felt sort of familiar.
 
-Climbing the mass of bent metal, he made it to his cockpit. The nose of the cockpit was now almost completely filled with water up to the point where the opening in the glass was.
+Climbing the mass of bent metal, he made it to his cockpit. The nose of the cockpit was now almost completely filled with water up to the point where the opening in the glass was. He slid his lower half down into the water and stood on the wheel as he strapped himself into the seat. Hanging in that awkward position for a moment, he almost felt weightless. Then he shifted the lever to his lower left and the glass slid to close the opening.
+
+He spun up the machine. And with no small amount of force was able to move the tracks, pulling at the soft ground over and over until the drew it forward and quickly dropped the back half. The water rushed over him but quickly disappeared through some hidden holes down in the floor. He was now level.
+
+After repositioning it closer to the alien, he lowered the cockpit to it's true resting height and stepped off onto the track. We're going to get food, he said as he lept down to the alien and started lifting it into his arms. He managed to get it into his machine beside him by leaping from the smaller tracks of it's machine to his with it in his arms, and then started driving.
+
+It's body was difficult to manage as the machine bounced and jeered in different directions, scaling rough terrain, but he kept the alien lying across his lap.
+
+The route was clear to him because of his determination when he had trailblazed it. He didn't spend time weaving, but essentially had forged a path as straight as possible and the barriers he had to break through, were still visible even after the storm had ravaged the terrain.
+
+It's head, resting on the side of the cockpit, turned toward him with a different sort of motion. It caught his eye and he stopped the machine. He placed his hands on either sides and lifted it slightly, it's eyes cracked open slowly and partially and it's mouth seemed to slightly change shape but no sound came out.
+
+Hello! He said longingly. HELLO...
+
+It gave no response, and appeared to fall back asleep. Again, it was a sign to him to take action and he pressed forward at a greater pace.
