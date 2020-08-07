@@ -505,16 +505,36 @@ These tracks were smaller than the ones on his machine and he was able to jump o
 
 After getting fully underneath, he collapsed next to it with little left inside him.
 
-Now that he had touched it, he just wanted to hold it, not only for it's sake but for something else. Something he needed so desperately but had been starved of for so long. He wanted to scream but had not the energy left.
+Now that he had touched the alien, he just wanted to hold it, not only for it's protection but for something else. Something he needed so desperately but had been starved of for so long. He wanted to scream but did not have the energy left.
 
-At once, water came flowing down below the machine at the same time it came from his eyes. He gripped the being tightly, pushing aside its hair and held its head close to his. Slowly movign closer until it's forhead touched his. His eyes recessed, and he pressed his brow low, the tears and water growing.
+At once, water came flowing down below the machine at the same time it came from his eyes. He gripped the alien tightly, pushing aside its hair and held its head close to his. Slowly moving closer until it's forhead touched his. His eyes recessed, and he pressed his brow low, the tears and water poured out.
 
-The hair on the alien started lifting and again the light burst happened, louder than anything he had ever heard before, striking the mountain of machinery they lied beaneath. He held it close, knowing not what would happen.
+The hair on the alien started lifting and again the light burst happened, louder than anything he had ever heard before, striking the mountain of machinery they lied beaneath. He held it close, not knowing what would happen.
 
 For hours this continued.
 
-He was able to fall asleep a few times but awoke to the sound of every strike. And when his eyes cracked open, every time he saw a shape in the darkness at one of the openings.
+He was able to fall asleep a few times but woke at the sound of every strike. And when his eyes cracked open, every time he saw a shape in the darkness at one of the openings. It stood, four legged, disappearing into the darkness as the light flashes dissipated, but eyes piercing through. Watching, and watching, and watching him. In these moments, his mind existed in the thin space between dream and reality, and dream kept dragging him back into it's clutches.
 
-It stood, four legged, disappearing into the darkness as the light flashes dissipated, but eyes piercing through. Watching, and watching, and watching.
+A particularly violent light strike woke him while the air was rushing back and forth vigorously. It commenced a loud roar above. The sound of machine upon machine. Slowly gaining speed as the top moved forward. It crashed forth at the front side, resting the front of it's massive heavy tracks on the ground with powerful thud.
 
-He was too tired to think anything of it, and dosed off again and again.
+The alien was still motionless.
+
+Instead of fear, he recognized the opportunity. Now his machine was free to move around, but he the atmosphere was still very tumultuous. He rested his head back down, with atleast now a plan.
+
+# Part 7
+
+His clothing made a strange sound as his movement peeled it from the sticky ground. More light now entered the area through the middle of the tracks and the air had returned to the stillness he first experienced.
+
+The alien, still lifeless, had missed the entire commotion. Though probably for the better. He thought.
+
+He crawled to the opening to have a look at the surroundings. Pillars, now very different things than what he was used to seeing, lied about in chaotic positions, here and there. Even large rocks seemed to have been thrown about by the previous nights tempest.
+
+He stood and walked around, the sky still grayish but now cracking and shooting lazers of light upon various spots on the hillsides. The terrain arose on either sides of him like a folded piece of paper. They were coated in what looked like thick green clouds emerging from their stems. Together they created an impenetrable wall of color, only breaking for large patches of red ground and rocky outcroppings like shelves placed high up on the wall.
+
+The sight was all consuming but familiar to him in the way it was when he first emerged from the cockpit of his machine. Almost a feeling like he had seen it before.
+
+His machine still lied upon the smaller one below, but atleast it was touching down to the surface where he believed he may be able to drive it off.
+
+Let's give it a try! He said to himself. As if anything made much sense in this moment. He figured why not return to something that felt sort of familiar.
+
+Climbing the mass of bent metal, he made it to his cockpit. The nose of the cockpit was now almost completely filled with water up to the point where the opening in the glass was.
