@@ -552,3 +552,19 @@ It's head, resting on the side of the cockpit, turned toward him with a differen
 Hello! He said longingly. HELLO...
 
 It gave no response, and appeared to fall back asleep. Again, it was a sign to him to take action and he pressed forward at a greater pace.
+
+They neared his pod, dodging many fallen pillars. From afar, he could only barely see it but could tell something was wrong. Ahhhhh, he uttered. Nearing, he saw it. The large stack of pillars he had harvested had crushed his pod. Through the orange, it looked like a strange sequence of shapes folding in and out of itself.
+
+He pulled the lever.
+
+He stood in the cockpit high above the wreckage, staring down at the mass of chaos. The top had completely caved in, and the water module was spurting it's dying breathe.
+
+He just stared, at moments, thinking he should do something, but nothing coming to mind. He couldn't even move. His home was now nothing but trash.
+
+The ground met his boots and he approached it slowly. Like the water module, light flickered underneath a few resting pillars.
+
+The deformed airlock still partly covered the opening. He was able to climb one of the pillars and get to it. He pulled it up but to know avail until he leaned on it with his weight. Breaking open, it held on with only one hinge.
+
+He crawled through, below the opening and a huge pillar looming above, no lights turning on for him. The inside still felt strangely clean, but so deformed he had to stay crouched as he dodged the protruding ceiling. The scanner in the hall was cracked and shooting tiny lights into the darkness.
+
+Without too much troubled, he was able to gather the rest of his daily rations. His bed was lighting up with a dull green and then repeating every few seconds. Across from his bed, he noticed a few words cycling across
