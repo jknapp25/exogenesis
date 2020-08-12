@@ -93,11 +93,11 @@ What if it re-appears?
 
 Returning to his bed, the coverings were still saturated with sweat. Yet after a few minutes, he eventually found a corner of his mind to nestle himself into. And there, he found found something. Simulations.
 
-    He was watching a boy moving quickly, leaping up tiny islands, deep purple and jagged. He was going up an incline, slipping here and there, the slow movement of the ground making the placement of his feet unpredictable. Chasing the boy was a creature, not unlike the glitch he had seen. In the dream, he could feel what the boy felt but it wasn’t the same feeling the being gave him.
-
-    His perspective changed. He was now the boy, running, but looking back over his shoulder he saw the glitch. The creature’s terrifying yellow incisors slicing through the air, muzzle covered in dried blood. It pursued him, jaws agape. This now became a run for his life.
-
-    He reached the crest of the incline, it leveled out but the trail dropped off to nothingness. He had nowhere to go. Terrified, he waited a few moments for the creature to emerge, but nothing. Nothing came over. He inched forward, peering back down the trail. It leaped up! Tackling him to the ground! All he could do was shield himself with his arms, expecting his flesh to be torn away, but there was no blood. Instead it caressed him with it’s tongue. Uncovering his face, he saw the beasts eyes held no terror.
+> He was watching a boy moving quickly, leaping up tiny islands, deep purple and jagged. He was going up an incline, slipping here and there, the slow movement of the ground making the placement of his feet unpredictable. Chasing the boy was a creature, not unlike the glitch he had seen. In the dream, he could feel what the boy felt but it wasn’t the same feeling the being gave him.
+>
+> His perspective changed. He was now the boy, running, but looking back over his shoulder he saw the glitch. The creature’s terrifying yellow incisors slicing through the air, muzzle covered in dried blood. It pursued him, jaws agape. This now became a run for his life.
+>
+> He reached the crest of the incline, it leveled out but the trail dropped off to nothingness. He had nowhere to go. Terrified, he waited a few moments for the creature to emerge, but nothing. Nothing came over. He inched forward, peering back down the trail. It leaped up! Tackling him to the ground! All he could do was shield himself with his arms, expecting his flesh to be torn away, but there was no blood. Instead it caressed him with it’s tongue. Uncovering his face, he saw the beasts eyes held no terror.
 
 He felt the vibrations tingle his skin before noticing any sound. Stepping onto the floor, the noise ceased immediately though it faded in his ear like someone kept their foot on a sustain pedal. His dream followed suit...
 
