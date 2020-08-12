@@ -547,8 +547,8 @@ It's body was difficult to manage as the machine bounced and jeered in different
 
 The route was clear to him because of his determination when he had trailblazed it. He didn't spend time weaving, but essentially had forged a path as straight as possible and the barriers he had to break through, were still visible even after the storm had ravaged the terrain.
 
-It's head, resting on the side of the cockpit, turned toward him with a different sort of motion. It caught his eye and he stopped the machine. He placed his hands on either sides and lifted it slightly, it's eyes cracked open slowly and partially and it's mouth seemed to slightly change shape but no sound came out.
+It's head, resting on the side of the cockpit, turned toward him with a different sort of motion. It caught his eye and he stopped the machine. He placed his hands on either sides of its head and lifted carefully. It's eyes cracked open slowly and mouth barely shifted shapes but nothing came out.
 
 Hello! He said longingly. HELLO...
 
-It gave no response, and appeared to fall back asleep. Again, it was a sign to him to take action and he pressed forward at a greater pace. test
+It gave no response, and appeared to fall back asleep. Again, it was a sign to him to take action and he pressed forward at a greater pace.
