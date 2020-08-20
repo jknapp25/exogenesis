@@ -567,4 +567,16 @@ The deformed airlock still partly covered the opening. He was able to climb one 
 
 He crawled through, below the opening and a huge pillar looming above, no lights turning on for him. The inside still felt strangely clean, but so deformed he had to stay crouched as he dodged the protruding ceiling. The scanner in the hall was cracked and shooting tiny lights into the darkness.
 
-Without too much troubled, he was able to gather the rest of his daily rations. His bed was lighting up with a dull green and then repeating every few seconds. Across from his bed, he noticed a few words cycling across
+Without too much trouble, he was able to gather the rest of his daily rations. Until he noticed, his bed was lighting up with a dull green every few seconds. Across from his bed, he noticed a few words floating across the surface. "EAVE"..."EAVE NOW"..."FIND TH CREATU"..."FIND TH CREATU". Though they were broken, it wasn't difficult deciphering what it was saying, only difficult deciphering the meaning.
+
+Why is this telling me to leave? What creature? WHO is telling me to leave? The questions floated through his mind.
+
+There was no way for him to gather water here, so he took what he had. Exiting the rubble, he felt a tug, not on his clothing, but inside. Like someone had tethered his heart to the pod. Like the only thing he knew, was now gone. Feeling a pit in his stomach, his eyes caught the face of the alien lying helpless up in the cockpit. Orange light was now illuminating it's restful face, illuminating the corners of his soul. It was clear to him that it was better. That everything else, was now second. Had been replaced. That new meaning was somehow here. And it was that. It was this unknown being, but somehow known like a place he had been before.
+
+His finger outlined the shape of the little white block on his leg.
+
+He broke free...
+
+Then climbed back up into the machine and was off. To where? He didn't know. But something about "the creature". Something about a creature.
+
+He drove back into the areas he had cleared
