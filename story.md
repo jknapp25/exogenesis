@@ -527,19 +527,19 @@ His clothing made a strange sound as his movement peeled it from the sticky grou
 
 The alien, still lifeless, had missed the entire commotion. Though probably for the better. He thought.
 
-He crawled to the opening to have a look at the surroundings. The pillars, now very different things than what he was used to seeing, lied about in chaotic positions, here and there. Even large rocks seemed to have been thrown about by the previous nights tempest.
+He crawled to the opening to have a look at the surroundings. The pillars, now very different things, lied about in chaotic positions, here and there. Even large rocks seemed to have been thrown from their perches by the previous nights tempest.
 
-He stood and walked around, the sky still grayish but now cracking and shooting lazers of light upon various spots on the hillsides. The terrain arose on either sides of him like a curled piece of paper. They were coated in what looked like thick green clouds emerging from their stems. Together they created an impenetrable wall of color, only breaking for large patches of red ground and rocky outcroppings like shelves placed high up on the wall.
+He stood and walked around, the sky still grayish but now cracking and shooting lazers of light upon various spots of the hillside. The terrain arose on either sides of him like a curled piece of paper. They were coated in what looked like thick green clouds emerging from their stems. Together they created an impenetrable wall of color, only breaking for large patches of red ground and rocky outcroppings like shelves placed high up on the wall.
 
 The sight was all consuming but familiar to him in the way it was when he first emerged from the cockpit of his machine. Almost a feeling like he had seen it before.
 
-His machine still lied upon the smaller one below, but atleast it was touching down to the surface where he believed he may be able to drive it off.
+His machine still sat up on the smaller one, but at a much more dramatic angle. The front of it's tracks now touched down to the surface where he believed he may be able to drive it off.
 
 Let's give it a try! He said to himself. As if anything made much sense in this moment. He figured why not return to something that felt sort of familiar.
 
-Climbing the mass of bent metal, he made it to his cockpit. The nose of the cockpit was now almost completely filled with water up to the point where the opening in the glass was. He slid his lower half down into the water and stood on the wheel as he strapped himself into the seat. Hanging in that awkward position for a moment, he almost felt weightless. Then he shifted the lever to his lower left and the glass slid to close the opening.
+Climbing the mass of bent metal, he made it to his cockpit. The cocoon of the cockpit was now almost completely filled with water up to the point where the opening in the glass was. He slid his lower half down into the water and stood on the wheel as he strapped himself into the seat. Hanging in that awkward position for a moment, he almost felt weightless. Then he shifted the lever to his lower left and the glass slid to close the opening.
 
-He spun up the machine. And with no small amount of force was able to move the tracks, pulling at the soft ground over and over until the drew it forward and quickly dropped the back half. The water rushed over him but quickly disappeared through some hidden holes down in the floor. He was now level.
+He spun up the machine. And with no small amount of force was able to move the tracks, pulling at the soft ground over and over until the drew it forward and dropped the back half like a maimed giant. The water rushed over him but quickly disappeared through some hidden holes down in the floor. He was now level.
 
 After repositioning it closer to the alien, he lowered the cockpit to it's true resting height and stepped off onto the track. We're going to get food, he said as he lept down to the alien and started lifting it into his arms. He managed to get it into his machine beside him by leaping from the smaller tracks of it's machine to his with it in his arms, and then started driving.
 
@@ -553,7 +553,7 @@ Hello! He said longingly. HELLO...
 
 It gave no response, and appeared to fall back asleep. Again, it was a sign to him to take action and he pressed forward at a greater pace.
 
-They neared his pod, dodging many fallen pillars. From afar, he could only barely see it but could tell something was wrong. Ahhhhh, he uttered. Nearing, he saw it. The large stack of pillars he had harvested had crushed his pod. Through the orange, it looked like a strange sequence of shapes folding in and out of itself.
+They neared his pod, dodging many fallen pillars. From afar, he could only barely see it but could tell something was wrong. Ahhhhh, he uttered. Nearing, he saw it. The large stack of pillars he had harvested had crushed his pod. Through the orange, it looked like a strange sequence of shapes protruding and folding in and out of itself.
 
 He pulled the lever.
 
@@ -563,20 +563,18 @@ He just stared, at moments, thinking he should do something, but nothing coming 
 
 The ground met his boots and he approached it slowly. Like the water module, light flickered underneath a few resting pillars.
 
-The deformed airlock still partly covered the opening. He was able to climb one of the pillars and get to it. He pulled it up but to know avail until he leaned on it with his weight. Breaking open, it held on with only one hinge.
+The deformed airlock still partly covered the opening. He was able to climb one of the pillars and get to it. He pulled it up but to no avail until he leaned on it with his weight. Breaking open, it held on with only one hinge.
 
 He crawled through, below the opening and a huge pillar looming above, no lights turning on for him. The inside still felt strangely clean, but so deformed he had to stay crouched as he dodged the protruding ceiling. The scanner in the hall was cracked and shooting tiny lights into the darkness.
 
-Without too much trouble, he was able to gather the rest of his daily rations. Until he noticed, his bed was lighting up with a dull green every few seconds. Across from his bed, he noticed a few words floating across the surface. "EAVE"..."EAVE NOW"..."FIND TH CREATU"..."FIND TH CREATU". Though they were broken, it wasn't difficult deciphering what it was saying, only difficult deciphering the meaning.
+Without too much trouble, he gathered the rest of his daily rations, until he noticed his bed was lighting up with a dull green every few seconds. Across the opposite wall from it, he noticed a few words floating across the folded surface. "EAVE"..."EAVE NOW"..."FIND TH CREATU"..."FIND TH CREATU". Though they were broken, it wasn't difficult deciphering what it was saying, only difficult deciphering the meaning.
 
 Why is this telling me to leave? What creature? WHO is telling me to leave? The questions floated through his mind.
 
-There was no way for him to gather water here, so he took what he had. Exiting the rubble, he felt a tug, not on his clothing, but inside. Like someone had tethered his heart to the pod. Like the only thing he knew, was now gone. Feeling a pit in his stomach, his eyes caught the face of the alien lying helpless up in the cockpit. Orange light was now illuminating it's restful face, illuminating the corners of his soul. It was clear to him that it was better. That everything else, was now second. Had been replaced. That new meaning was somehow here. And it was that. It was this unknown being, but somehow known like a place he had been before.
+There was no way for him to gather water here, so he took what he had. Exiting the rubble, he felt a tug, not on his clothing, but inside. Like someone had tethered his heart to the pod. Like the only thing he knew, was now gone. Feeling a pit in his stomach, his eyes caught the face of the alien lying helpless in the cockpit. Orange light now illuminated it's restful face, spreading new light to the corners of his soul. It was clear to him that this was better somehow. That everything else, was now second. Had been replaced. That new meaning was somehow here. And it was that. It was this unknown being, but somehow known again, like a place he had been before.
 
 His finger outlined the shape of the little white block on his leg.
 
-He broke free...
-
-Then climbed back up into the machine and was off. To where? He didn't know. But something about "the creature". Something about a creature.
+He climbed back into the machine and was off. To where? He didn't know. But something about "the creature". Something about a creature.
 
 He drove back into the areas he had cleared
