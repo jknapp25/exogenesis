@@ -1,4 +1,4 @@
-![Exogenesis book cover](/images/cover-1.jpg)
+![Exogenesis book cover](https://cdn.jsdelivr.net/gh/jknapp25/exogenesis/images/cover-1.jpg)
 
 # Part 1
 
