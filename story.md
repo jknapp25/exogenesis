@@ -1,4 +1,4 @@
-![Exogenesis book cover](https://github.com/jknapp25/exogenesis/blob/images/cover-1.jpg "Logo Title Text 1")
+![Exogenesis book cover](https://github.com/jknapp25/exogenesis/images/cover-1.jpg)
 
 # Part 1
 
