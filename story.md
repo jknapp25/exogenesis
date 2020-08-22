@@ -589,4 +589,11 @@ The ground felt soft and wet below his boots. The liquid seemed to him, a good s
 
 Hoisting the alien into his arms he was off, in the direction of the light streaming through the new pillars, not sure where he was going.
 
-Afar off, he stopped and looked back. Barely through the density could he see the ominous mass in the distance.
+Afar off, he stopped and looked back. Barely through the density could he see the ominous machine behind him. He looked at it sternly like he may never see it again and that's okay.
+
+Returning his face to the sun, the rays seemed into his eyelids with a comforting warmth and he put his foot in front of the other. In the new direction. 
+
+An hour of walking flew by with the time between breaks growing more frequent, his need for liquid was becoming very apparent and even moreso for the helpless passenger as it's quiet breathing had grown to sound restricted. Like trying to breathe through his dense body suit. 
+
+He sat below a pillar, shading them from the draining heat and recognized a smell. 
+
