@@ -583,9 +583,9 @@ He drove back into the areas he had cleared his eyes scanning the rubble and emp
 
 A chaulkiness in his mouth reminded him of his need for liquid but he had none. He looked down at the other and noticed cracks forming on it's lips, it must need liquid even moreso than I do, he thought, stopping the machine to consider. But where can I find some?
 
-He opened the hatch, and felt the warmth blanket him as it revealed the new days light. He felt the aliens head shift as it responded to the feeling of it, and looking around at the incredbile surroundings, decided that maybe if he just walked in a direction, he would find something. There weren't many other options. He tossed the pack of rations down to the ground and within a few minutes, was able to get them both down as well.
+He opened the hatch, and felt the warmth blanket him as it revealed the new days light. He felt the aliens head shift as it responded to the feeling of it, and looking around at the incredible surroundings, decided that maybe if he just walked in a direction, he would find something. There weren't many other options. He tossed the pack of rations down to the ground and within a few minutes, was able to get them both down as well.
 
-The ground felt soft and wet below his boots. The liquid seemed to him, a good sign, that maybe they could drink it if he could find more.
+The ground felt soft and wet below his boots. The moisture seemed to him, a good sign, that maybe they could drink it if he could find more.
 
 Hoisting the alien into his arms he was off, in the direction of the light streaming through the new pillars, not sure where he was going.
 
