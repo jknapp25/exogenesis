@@ -589,11 +589,32 @@ The ground felt soft and wet below his boots. The moisture seemed to him, a good
 
 Hoisting the alien into his arms he was off, in the direction of the light streaming through the new pillars, not sure where he was going.
 
-Afar off, he stopped and looked back. Barely through the density could he see the ominous machine behind him. He looked at it sternly like he may never see it again and that's okay.
+Afar off, he stopped and looked back. Barely through the density could he see the ominous machine behind him. He looked at it sternly like he may never see it again. And that was okay.
 
-Returning his face to the sun, the rays seemed into his eyelids with a comforting warmth and he put his foot in front of the other. In the new direction. 
+Returning his face to the sun, the rays streemed into his eyelids with a comforting warmth and he put his foot in front of the other. In the new direction.
 
-An hour of walking flew by with the time between breaks growing more frequent, his need for liquid was becoming very apparent and even moreso for the helpless passenger as it's quiet breathing had grown to sound restricted. Like trying to breathe through his dense body suit. 
+An hour of walking flew by with the time between breaks growing more frequent, his need for liquid was becoming very apparent and even moreso for the helpless passenger as it's quiet breathing had grown to sound restricted. Like trying to breathe through the fabric of his body suit.
 
-He sat below a pillar, shading them from the draining heat and recognized a smell. 
+He sat below a pillar, shading them from the draining heat and recognized a smell.
 
+It felt fresh, inviting, but suttle. It entered, like it owned the area and lingered. Tiny rustlings also came to his eardrums, like spilled crystals. It drew his gaze toward a lighter area in front of him, through the pillars ever present covering.
+
+The soil curved downward there.
+
+He hoisted the alien back into his arms, feeling his muscles grown with thirst. And his leg buckled but he caught it with his lingering strength.
+
+One foot in front of the other.
+
+The curvature bordered a 10 foot wide crack. Like the planet had forgotten to connect here. As he neared, the sound and smell grew. And the air took on a slight stickiness.
+
+There lied in the crack, the tiny crystals. Ever spilling.
+
+He didn't even think about the warnings of deadliness he had received in the forever ago. That this place was venomous in every way. Its beauty had already started to shake that idea like a toddler's doll. Unraveling the truth like it could never stay raveled.
+
+Lowering to place the alien on the edge of the crack, he almost toppled over into the liquid. But he set it and then conceded with his momentum. Making a splash as the rubber wrecking balls on his feet collided with the liquid. Fully collapsing into flow, he started laughing. Like it was all a game, as if he knew anything about games. A spirit lifted his spirits, returning some ounce of himself.
+
+Turning his head, he sipped at the liquid. It was cool and dove down into his throat, opening his chest.
+
+Feeling revisited by himself, he returned to the alien. It's lips now fluttering but face blank otherwise. He pulled it toward himself, holding it's upper half while it's legs slid down the small bank and touched down into the coolness.
+
+He rested its top half on his folded legs and let the coolness pour over it freely. Cupping his hand and dipping it, he brought the crystaline liquid up and poured a small amount over it's cracked lips. The movement of it's lips grew larger, as the liquid entered. It's head tilted toward the gift.
