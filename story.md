@@ -620,3 +620,15 @@ He opened his eyes, fully expecting to see the glitch upon the edge of the crack
 Crawling up the edge of the small bank, he neared it's face. It's lips were now fluttering but face blank otherwise. He pulled it toward himself, holding it's upper half while it's legs slid down the small bank and touched down into the coolness.
 
 He rested its top half on his folded legs and let the coolness pour the two of them freely. Cupping his hand and dipping it, he brought the crystaline liquid up and poured a small amount over it's cracked lips. The movement of it's lips grew larger, as the liquid entered. It's head tilted toward the gift.
+
+The alien winced, as though the liquid went down with some pain as it bored through it's throat, bringing freedom back to the air tunnel.
+
+He held it closely. Closer than he had held anything before. Like if he held tightly it would re-awaken faster, or to a world better than it once was. Because he was there now.
+
+A sliver came to the aliens eyes as it welcomed in a small amount of the light. It traced the outline of his head against the powerful yellowness until detail came to the terrain of his face and their eyes created an unbreakable pathway between them.
+
+Hello. He said, as quietly as speaking to his own thoughts. The brow on the alien raised as though surprised by the familiar response. He-Hellllo. It lingered on the heavy consonant, like waking up underneath a chainmail blanket.
+
+He felt the soft hair on the back of it's head resting in his palm.
+
+For this moment there was nothing else in their world, it had been ravished. It had degraded, it was
