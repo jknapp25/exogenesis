@@ -611,10 +611,12 @@ There lied in the crack, the tiny crystals. Ever spilling.
 
 He didn't even think about the warnings of deadliness he had received in the forever ago. That this place was venomous in every way. Its beauty had already started to shake that idea like a toddler's doll. Unraveling the truth like it could never stay raveled.
 
-Lowering to place the alien on the edge of the crack, he almost toppled over into the liquid. But he set it and then conceded with his momentum. Making a splash as the rubber wrecking balls on his feet collided with the liquid. Fully collapsing into flow, he started laughing. Like it was all a game, as if he knew anything about games. A spirit lifted his spirits, returning some ounce of himself.
+Lowering to place the alien on the edge of the crack, he almost toppled over into the liquid. But he set it down and then conceded with his momentum. Making a splash as the rubber wrecking balls on his feet collided with the liquid. Fully collapsing into the flow, he started laughing. Like it was all a game, as if he knew anything about games. A spirit lifted his spirits, returning some ounce of himself.
 
-Turning his head, he sipped at the liquid. It was cool and dove down into his throat, opening his chest.
+In that moment, this scenario felt all too familiar. The clash of the senses was so powerfully inside him. Somewhere, that even his bones remembered. Like a grainy television screen, he saw this crack in the earth, but different, surroudned by different pillars, but everything else so similar. He felt a presence there, in the murky daydream. He felt it like it was there with him now. He tried to paint the vision in detail on the back of his eye lids, and slowly found some success. The outline of the being, was the same as that of the one he saw during the storm. Standing powerfully between the large tracks of the aliens machine. He now saw the outline of this same creature behind his eyelids, and felt like it sat once again on the edge of the crack above him. As it once had. The image, in his minds eye, started to flicker, like a glitch in his brain.
 
-Feeling revisited by himself, he returned to the alien. It's lips now fluttering but face blank otherwise. He pulled it toward himself, holding it's upper half while it's legs slid down the small bank and touched down into the coolness.
+He opened his eyes, fully expecting to see the glitch upon the edge of the crack. But it wasn't there. In it's place was this new creature, more like him.
 
-He rested its top half on his folded legs and let the coolness pour over it freely. Cupping his hand and dipping it, he brought the crystaline liquid up and poured a small amount over it's cracked lips. The movement of it's lips grew larger, as the liquid entered. It's head tilted toward the gift.
+Crawling up the edge of the small bank, he neared it's face. It's lips were now fluttering but face blank otherwise. He pulled it toward himself, holding it's upper half while it's legs slid down the small bank and touched down into the coolness.
+
+He rested its top half on his folded legs and let the coolness pour the two of them freely. Cupping his hand and dipping it, he brought the crystaline liquid up and poured a small amount over it's cracked lips. The movement of it's lips grew larger, as the liquid entered. It's head tilted toward the gift.
