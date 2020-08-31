@@ -625,10 +625,26 @@ The alien winced, as though the liquid went down with some pain as it bored thro
 
 He held it closely. Closer than he had held anything before. Like if he held tightly it would re-awaken faster, or to a world better than it once was. Because he was there now.
 
-A sliver came to the aliens eyes as it welcomed in a small amount of the light. It traced the outline of his head against the powerful yellowness until detail came to the terrain of his face and their eyes created an unbreakable pathway between them.
+A sliver came to the aliens eyes as it let in a small amount of the light. It appeared to trace the outline of his head against the powerful yellowness until detail came to the terrain of his face and their eyes created an unbreakable pathway between them.
 
-Hello. He said, as quietly as speaking to his own thoughts. The brow on the alien raised as though surprised by the familiar response. He-Hellllo. It lingered on the heavy consonant, like waking up underneath a chainmail blanket.
+Hello. He said, as quietly as speaking to his own thoughts. The brow on the alien raised a few millimeters as though surprised by the familiar response. He-Hellllo. It lingered on the heavy consonant, like waking up underneath a chainmail blanket.
 
 He felt the soft hair on the back of it's head resting in his palm.
 
-For this moment there was nothing else in their world, it had been ravished. It had degraded, it was
+For this moment there was nothing else in their world, it had been ravished. It had degraded, it was abandoned, and they were now separate, somewhere else. In a place where connection was possible, where the deep yearnings of their souls could actually be met.
+
+He trembled in front it's tiny words, like everything was now changing.
+
+You - are - like me. He whispered.
+
+Yes, I think so.
+
+# Part 8
+
+It's hand raised to meet his arm still gently suspending it's head toward him, and ran it's finger tips across his skin. Studying the texture closely. The aliens eyes opened wider at the feeling and a soft smile inched across it's face.
+
+He noticed the deep blue portal of it's eyes, like he could enter into them.
+
+He noticed it's smooth lips like the crescent shape in the night sky he had seen behind the harvester's glass.
+
+He
