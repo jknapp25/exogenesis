@@ -633,7 +633,7 @@ He felt the soft hair on the back of it's head resting in his palm.
 
 For this moment there was nothing else in their world, it had been ravished. It had degraded, it was abandoned, and they were now separate, somewhere else. In a place where connection was possible, where the deep yearnings of their souls could actually be met.
 
-He trembled in front it's tiny words, like everything was now changing.
+He trembled in front of it's tiny words, like everything was now changing.
 
 You - are - like me. He whispered.
 
@@ -645,6 +645,10 @@ It's hand raised to meet his arm still gently suspending it's head toward him, a
 
 He noticed the deep blue portal of it's eyes, like he could enter into them.
 
-He noticed it's smooth lips like the crescent shape in the night sky he had seen behind the harvester's glass.
+He noticed it's smooth lips like the crescent shape in the night sky he had seen hiding behind the harvester's glass.
 
-He
+He noticed the softness of it's skin.
+
+But you're different. The soft words emerged.
+
+Yes, I think so. It replied, the small smile coming to the surface once again. It delicately stopped it's hand on his arm and tilted it's head to rest on his arm.

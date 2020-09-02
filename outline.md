@@ -29,10 +29,16 @@ She touches his face. "You're like me."
 Meets the girl, she’s the most incredible thing he’s ever seen, even more beautiful than the world
 
 7
-Them interacting like Adam and Eve
-Quietly sitting in front of each other slowly touching each others faces
-Walking
-Skinny dipping
+interacting in the river
+skinny dipping
+interacting in the forest
+come across beautiful meadow
+house area
+house is gone
+finds pictures of humans under the dust
+steps on bunker hatch, hard thing that makes loud noise
+goes inside
+finds resources
 
 8
 Remembers his dog.
