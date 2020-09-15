@@ -651,4 +651,24 @@ He noticed the softness of it's skin.
 
 But you're different. The soft words emerged.
 
-Yes, I think so. It replied, the small smile coming to the surface once again. It delicately stopped it's hand on his arm and tilted it's head to rest on his arm.
+Yes, I think so. It replied, the small smile coming to the surface once again. It delicately stopped it's hand on his arm and tilted it's head to rest against it.
+
+They stayed here weaving in and out of each other for a while. The crystalline liquid reflecting light beams, dancing across their faces. The liquid seeped into the corners and crevaces of their clothing like the new sensations awakened from the corners and crevaces of their souls.
+
+His fingertips carved the outline of her face into the background, then her neck, until they could not cross a river of red. Another liquid. Hard and calloused, it clung to the side of her neck like dry paint and continued below the fabric border wrapping her neck. He gently touched it with his fingertips, and her face wrenched into a tight knot. But she didn't pull away.
+
+He caught her eyes and without a word passed between them a look of remorse. But it quickly turned into something else.
+
+Led by the strength of this connection, his hand grasped the tough lapel that held a button on her suit. It gave him permission to explore further, though neither of them really understood what that could mean.
+
+The metal snap clicked as it was released. Releasing the alien's neck from it's tight grasp. There continued the red dried river.
+
+Pulling down the zipper on the front of the suit, he could feel the veil being dropped on everything. It tangibly broke something existing out there. It felt like pure rebellion. As if truth itself was being released from it's prison.
+
+It's light skin shown with a stark contrast against the dark fabric above.
+
+The alien released it's grasp upon his arm and let it fall below the coolness.
+
+The zipper ended and he gently peeled the side opposite the pool of redness away. It's contours continued there like he could not believe. He wondered why anyone would ever cover up such a thing in the first place. Valleys, mountains, forests, it's body contained them all, and in such spectacular equalibrium. Even the stur he had felt when the harvesters glass opened, and this new world was revealed seemed second now to what he saw here.
+
+He let the coolness pour over it's exposed skin, mixing into a red potion that trailed off down with it's movement. The aliens breathe grew deeper and quicker as the liquid washed it all away.
