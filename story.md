@@ -671,4 +671,10 @@ The alien released it's grasp upon his arm and let it fall below the coolness.
 
 The zipper ended and he gently peeled the side opposite the pool of redness away. It's contours continued there like he could not believe. He wondered why anyone would ever cover up such a thing in the first place. Valleys, mountains, forests, it's body contained them all, and in such spectacular equalibrium. Even the stur he had felt when the harvesters glass opened, and this new world was revealed seemed second now to what he saw here.
 
-He let the coolness pour over it's exposed skin, mixing into a red potion that trailed off down with it's movement. The aliens breathe grew deeper and quicker as the liquid washed it all away.
+He let the coolness pour over it's exposed skin, mixing into a red potion that trailed off down with the liquids movement. The aliens breathe grew deeper and quicker as the liquid wrapped around it's body.
+
+He twisted the alien to rest it's head on the bank beside the flowing liquid and slid the rest of it's suit off, boot, then boot. Red lines and dark clouds were painted across it's entire right side, making it clear to him why it was sensitive to his touch. He couldn't peel his eyes away from the contours and shapes of it's body. He sat there frozen, transfixed and silent.
+
+Eventually the alien lifted it's arm toward him and he drew closer to it, within reach. He examined the recesses on the sides of it's mouth, like perfectly smooth little craters. It unsnapped the button holding the fabric around his neck and pulled it's hand back to it's side as though a pain emerged from there. His eyes checked whether it was okay and it answered barely detectable.
+
+Continuing it's efforts, he removed his own suit as well, and set it on the shelf of ground above the bank.
