@@ -677,4 +677,12 @@ He twisted the alien to rest it's head on the bank beside the flowing liquid and
 
 Eventually the alien lifted it's arm toward him and he drew closer to it, within reach. He examined the recesses on the sides of it's mouth, like perfectly smooth little craters. It unsnapped the button holding the fabric around his neck and pulled it's hand back to it's side as though a pain emerged from there. His eyes checked whether it was okay and it answered barely detectable.
 
-Continuing it's efforts, he removed his own suit as well, and set it on the shelf of ground above the bank.
+Continuing it's efforts, he removed his own suit as well, and set it on the shelf of ground above the bank. When he turned back, the alien was pressing up on it's elbow and squinted it's eyes closed to account for the pain in it's movement. He quickly knelt back down and assisted it's painful movement until it sat upright in the shallow liquid.
+
+He sat down in front of it mirroring the crossing of it's legs.
+
+The aliens breathe slowed, and brought forth a smile that became mutual and rolled into shared laughter at the situation, or neither of them knew what. But it brought an alignment between them.
+
+He placed his hand before him and settled it on his leg, sliding it slightly, feeling the softness of it's skin. Then brought a hand to the side of it's face, which the alien responded warmly to, and tilted toward the hand, pressing into it.
+
+"How are you like me?"
