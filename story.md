@@ -685,4 +685,14 @@ The aliens breathe slowed, and brought forth a smile that became mutual and roll
 
 He placed his hand before him and settled it on his leg, sliding it slightly, feeling the softness of it's skin. Then brought a hand to the side of it's face, which the alien responded warmly to, and tilted toward the hand, pressing into it.
 
-"How are you like me?"
+"Why," he paused, "are you like me?"
+
+The air stilled between them.
+
+"I don't know," it answered, eyes settling to the side, "but I've felt you before," brow furrowed.
+
+"What?" He leaned in.
+
+"When I lie - at the end of a cycle - I...I experience things."
+
+"Yes?"
