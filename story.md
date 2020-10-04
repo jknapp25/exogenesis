@@ -687,7 +687,7 @@ He placed his hand before him and settled it on his leg, sliding it slightly, fe
 
 "Why," he paused, "are you like me?"
 
-The air stilled between them.
+The liquid seemed to slow to a stop around them.
 
 "I don't know," it answered, eyes settling to the side, "but I've felt you before," brow furrowed.
 
@@ -696,3 +696,11 @@ The air stilled between them.
 "When I lie - at the end of a cycle - I...I experience things."
 
 "Yes?"
+
+"You, understand?" It said reluctantly.
+
+"Yes. It's like, another, of this." It tracked his words. "Another..."
+
+"...world." They said it together.
+
+
