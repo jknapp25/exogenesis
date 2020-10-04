@@ -687,7 +687,7 @@ He placed his hand before him and settled it on his leg, sliding it slightly, fe
 
 "Why," he paused, "are you like me?"
 
-The liquid seemed to slow to a stop around them.
+The liquid seemed to thicken to a stop around them.
 
 "I don't know," it answered, eyes settling to the side, "but I've felt you before," brow furrowed.
 
@@ -703,4 +703,26 @@ The liquid seemed to slow to a stop around them.
 
 "...world." They said it together.
 
+A soft breeze weaved it's way around them, the pillars shhhh-ing in response.
 
+"Do you see them? The figures?" He asked.
+
+"I do. But not anymore."
+
+He was unsure what it meant by that. "Do you know them?"
+
+"I...I don't know."
+
+He picked up on it's defeated tone. "We should eat."
+
+He stood, the liquid dripping around him, and pressed up onto the bank. He leaned forward offering a hand down to pull it up beside him. But the alien didn't respond.
+
+It's eyes were faced in his direction. Silently, he motioned for it to come, and even waved across it's gaze, but nothing.
+
+He understood. Reaching closer, he touched it's shoulder, "grab my hand." It did so and emerged up the bank beside him.
+
+The strangeness of the experience jettisoned his mind into a state of unease. Questions arose in his mind as he gathered their now-dry suits and boots strewn about, and handed the alien's over to it.
+
+"I don't want it. I like the warmth on my skin." It said.
+
+"Well at least put the boots on"
