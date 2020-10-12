@@ -721,8 +721,28 @@ It's eyes were faced in his direction. Silently, he motioned for it to come, and
 
 He understood. Reaching closer, he touched it's shoulder, "grab my hand." It did so and emerged up the bank beside him.
 
-The strangeness of the experience jettisoned his mind into a state of unease. Questions arose in his mind as he gathered their now-dry suits and boots strewn about, and handed the alien's over to it.
+The strangeness of that experience jettisoned his mind into a state of unease. Questions arose in his mind as he gathered their now-dry suits and boots strewn about, and handed the alien's over to it.
 
 "I don't want it. I like the warmth on my skin." It said.
 
-"Well at least put the boots on"
+"The boots could help your feet", he said.
+
+It carefully outstretched one of it's feet and patted the ground, examining it's texture, soft in places though in some places tiny sharp things unpleasantly stabbed her soft feet. "Okay", it took the boots from his hands.
+
+Hand-in-hand they perused the warm forest, the bag full of rations hung over his opposite shoulder. Their skin almost disappeared into the golden glow peaking low through gaps in the looming pillars.
+
+As they walked silently, the electricity between their hands, the rhythm of their breathe, and the sound of their feet crunching forest detritus was a full conversation. But still, he could feel his lingering question causing an electrical short between them.
+
+"You can't see me can you."
+
+<Add a conversation here>
+
+He stopped moving.
+
+"Do you trust me?" He risked the words.
+
+"Yes." It replied, centimeters of a smile creeping upward.
+
+"Here we go!" His shout could be heard a second time against the rock walls nearby.
+
+He lifted the alien into his arms
