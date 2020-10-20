@@ -745,4 +745,24 @@ He stopped moving.
 
 "Here we go!" His shout could be heard a second time against the rock walls nearby.
 
-He lifted the alien into his arms
+He lifted the alien into his arms and started to run. It let out a short scream followed by a trail of laughter as they dodged their way through the pillars. Their tendrils tried to create impenetrable barriers but he was able to cleverly maneuver them in a split second. Sometimes ducking below the swipe, the arms were catching and releasing fibers of the aliens hair.
+
+The alien released it's weight into his arms along with handfuls of lingering fear. Warm baths of light washed it away as the remaining yellow flickered through windows in the between the pillars.
+
+In a quiet realm, their sounds echoed over the hills as the pillars listened attentively. Their laughter breathed life into a dying place.
+
+The alien grew heavier in his arms and his goal shifted toward finding a soft place to lay it's soft body. Toward his left, a corridor of pillars ended with a bright orange layer of light painting the world. He turned toward, reaching it's opening and froze.
+
+The aliens laughter haulted as she felt a tenseness in his skin. "What's wrong?"
+
+<use the same description here as when I first described the meadow>
+
+A silence crept across the green floor as he lowered the alien down onto it. It was an open space, flat, green, sheltered by pillars of different shapes and sizes.
+
+Against the vibrant green of the floor, the aliens soft color and smooth shapes appeared more at home than anything he had ever seen. He felt like he had placed a star back in it's position in the sky. The yellow-orange blanket of light strewn across it added a certain peace.
+
+Something about this place was all to familiar though.
+
+"Where are we?"
+
+"I think I've been here before."
