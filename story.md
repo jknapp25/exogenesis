@@ -747,9 +747,9 @@ He stopped moving.
 
 He lifted the alien into his arms and started to run. It let out a short scream followed by a trail of laughter as they dodged their way through the pillars. Their tendrils tried to create impenetrable barriers but he was able to cleverly maneuver them in a split second. Sometimes ducking below the swipe, the arms were catching and releasing fibers of the aliens hair.
 
-The alien released it's weight into his arms along with handfuls of lingering fear. Warm baths of light washed it away as the remaining yellow flickered through windows in the between the pillars.
+The alien released it's weight into his arms along with handfuls of lingering fear. Warm baths of light washed it away as the remaining yellow flickered through windows in between the pillars.
 
-In a quiet realm, their sounds echoed over the hills as the pillars listened attentively. Their laughter breathed life into a dying place.
+In a quiet realm, their sounds echoed over the hills as the pillars listened attentively. Their laughter breathed life into this dying place.
 
 The alien grew heavier in his arms and his goal shifted toward finding a soft place to lay it's soft body. Toward his left, a corridor of pillars ended with a bright orange layer of light painting the world. He turned toward, reaching it's opening and froze.
 
@@ -757,12 +757,58 @@ The aliens laughter haulted as she felt a tenseness in his skin. "What's wrong?"
 
 <use the same description here as when I first described the meadow>
 
+# Part 9
+
 A silence crept across the green floor as he lowered the alien down onto it. It was an open space, flat, green, sheltered by pillars of different shapes and sizes.
 
-Against the vibrant green of the floor, the aliens soft color and smooth shapes appeared more at home than anything he had ever seen. He felt like he had placed a star back in it's position in the sky. The yellow-orange blanket of light strewn across it added a certain peace.
+Against the vibrant color, the aliens soft white and smooth shapes appeared more at home than anything he had ever seen. He felt like he had placed a star back in it's position in the sky. The yellow-orange blanket of light strewn across it added a certain peace.
 
-Something about this place was all to familiar though.
+Something about this place was all too familiar though.
 
 "Where are we?"
 
-"I think I've been here before."
+"I think I've been here before." His words tentatively entering the space between them. He scanned it's green walls as if someone or something might emerge from the doorways between the pillars. But they released no beings. Only quietness. "You're safe here."
+
+"Where are you going?" Replied the alien.
+
+"Nowhere, I just want to walk this place."
+
+"What do you see?"
+
+He left the question in the air for a moment, while the his thoughts shifted into place. "I think it's more what I don't see. I know that sounds strange." Standing, "I need to look closer."
+
+The large area to their right was pristine in the golden evening light accept for one corner. It appeared almost as if someone had moved something on a shelf that was always there. His footsteps closed in on it, sounding like wind as they pet the tips of the green hairs below. The corner looked less untouched. The chaotic greenness, though dense was resting upon the floor unnaturally. As though the tendrils should be climbing but had now fallen to the ground.
+
+Within 20 feet now, he slowed. Naked red ground, lied amidst the loose tendrils. Its outlines clearly not characteristic of the surrounding area. Too straight. Too symmetrical.
+
+Walking over the sharp green arms of the surrounding greenness, he stepped amidst its fresh dirt. His boots sank in deeper than they had before. His eyes scanned the surface of the area, but no secrets emerged from it's redness. Having walked most of it, he started back, near his original footsteps and caught a glimpse of something within one of them. He darted to it. Tentatively, he picked the tiny white object out of the cool ground and held it in the light now more sparse.
+
+A hard white block. Reactangular. He flipped it and immediately a flush of tingles went across his body. On it's surface were two black divets.
+
+"The glitch." The words involuntarily came out beneath his breathe but he didn't understand their meaning. It didn't give him enough. But he felt as though Whoever was responsible for what happened here must have been like him. And her.
+
+_Her._
+
+He looked back at where she lay and his eyes were immediately drawn to his right as something emerged from the surrounding green like a bullet straight for where the alien sat.
+
+"No!" He screamed, and starting running toward the beast closing in far too quickly on the helpless alien. It's muzzle jerked in his direction and in a split second it changed it's course directly for him at deadly speed.
+
+He stood like a pillar, rooted in the ground. And remembered.
+
+His solidity stopped it in it's race before it attacked.
+
+He remembered. The glitch. The fight. The house. He remembered all of it. But the hungry beast did not. It inched forward with it's muzzle low to the ground, growling intensely. White spears emerging from it's jaws.
+
+"I know you." He stepped back slowly as it got closer. "Please, I know you."
+
+As it passed over the indents of where his feet were, it's attention was drawn down to the ground. It sniffed the imprints with precision, then stood with a completely different posture. Fangs withdrawn, it stepped slowly toward him, now out of curiosity and he allowed it to come to him. It smelled his hand. Then ran it's long pink tongue across his palm.
+
+"You remember me." The walls were now down. He knelt to the ground as it's tongue slapped across his whole face. He was unable to even get a word out. He ran his hand across it's hair, much softer than he remembered the glitches was.
+
+"You're not the glitch are you."
+
+It stopped for a moment and stood before him.
+
+"What happened?" The alien called.
+
+"I think we have a new
