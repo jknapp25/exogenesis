@@ -801,7 +801,7 @@ He remembered. The glitch. The fight. The house. He remembered all of it. But th
 
 "I know you." He stepped back slowly as it got closer. "Please, I know you."
 
-As it passed over the indents of where his feet were, it's attention was drawn down to the ground. It sniffed the imprints with precision, then stood with a completely different posture. Fangs withdrawn, it stepped slowly toward him, now out of curiosity and he allowed it to come to him. It smelled his hand. Then ran it's long pink tongue across his palm.
+As it passed over the indents where his feet were, it's attention was drawn down to the ground. It sniffed the imprints with precision, then stood with a completely different posture. Fangs withdrawn, it stepped slowly toward him, now out of curiosity and he allowed it to come to him. It smelled his hand. Then ran it's long pink tongue across his palm.
 
 "You remember me." The walls were now down. He knelt to the ground as it's tongue slapped across his whole face. He was unable to even get a word out. He ran his hand across it's hair, much softer than he remembered the glitches was.
 
@@ -809,6 +809,42 @@ As it passed over the indents of where his feet were, it's attention was drawn d
 
 It stopped for a moment and stood before him.
 
-"What happened?" The alien called.
+"What happened?!" The alien called.
 
-"I think we have a new
+"I think we have a new friend."
+
+"What do you mean?" The alien yelled as it stood and started walking in the direction of their voices.
+
+"Follow our voices. I now remember something, there was..." He recounted his experiences with the glitch but his attention had completely shifted toward the creature walking toward him. The alien's body held such a unique enchantment that when it moved he could not help but take his eyes off of it. It seemed to sway so smoothly like everything else was gone. Like nothing else mattered. Like the world was beneath it. It's legs were continued into it's upper body with such a poise, and it's upper body commanded the attention of this whole world. Yet in this moment, he noticed something different. As though it's spectacular figure complemented the surroundings around it. As though together, they became one and became more. He thought of the liquid, how it bent around any obstrucion, like the dip on the side of the aliens midsection. He thought of the green fur coming from the ground, like the soft hair emerging from the aliens head, he thought of the golden light, emerging through the trees like the light emerging from it's eyes when it looked at him directly.
+
+It reached it's hand, "Am I close?" But he was now fully hypnotized. "I think I'm close, are you there?"
+
+"Oh, yes. Yes. Right here." He grabbed it's hand and tugged softly for it to sit with them. "Meet our new friend." He guided it's hand toward the beast lying next to them. It welcomed the new presence, and looked at the aliens eyes as it felt the thick fur.
+
+"What is it?" It continued moving it's hand across it's fur.
+
+"I'm not sure. But I think it lives here. In this world."
+
+"Are there many of them?" It asked.
+
+"I'm not sure...something makes me think there isn't. Something makes me think there's not much of anything here. Anything alive."
+
+"Why do you say that?" It questioned
+
+"Do you know what we do here?"
+
+"What do you mean?"
+
+"What we do every day."
+
+"Umm. We collect pillars."
+
+"Do you remember those rough walls you felt as we walked? That was the pillars. That is what we have been collecting."
+
+"What are you saying?"
+
+"I now remember, when I first met a creature like this one. It somehow called me out. Outside of the harvester's cockpit. It fought me. We almost killed each other. But I awoke and that changed." He shifted his position. "At the time, I was collecting pillars near the perimeter of where many of them were, so I decided to get a look at the cleared area. I found a spot high enough to see very far. And what I saw..."
+
+"What..."
+
+"What I saw was nothing."
