@@ -847,4 +847,84 @@ It reached it's hand, "Am I close?" But he was now fully hypnotized. "I think I'
 
 "What..."
 
-"What I saw was nothing."
+"There was nothing." The alien's hand ceased floating across the beast and it shifted it's hollow gaze in the boy's direction. "It was empty. Flat. As far as I could see. Nothing but my tracks over everything."
+
+No response came from the alien. It was processing the information. It didn't need to respond, it understood.
+
+He cut the silence. "I think we're destroying this place."
+
+Again no response. The beast simply scanned the pillars, it's eyes as precise as could be.
+
+"We should eat."
+
+The bag contained a few options. None of which either of them had ever been particularly excited to eat. But in this moment their bodies would take anything. And so would the best. It watched closely as the options were sifted through.
+
+"Do you have ration 3?" A few bags were hidden throughout the small pile. Ration 3, was also his favorite.
+
+"The rice mixture?" He asked. The alien nodded with it's subtle smile. They both ate under the watchful eye of the beast until the alien squeeze a small amount of the mixture onto it's hand.
+
+"What are you doing?" He interjected.
+
+"I imagine it's hungry."
+
+"Too hungry. You're going to get hur..."
+
+"It's okay." The alien said confidently. It brought it's hand to the muzzle of the beast while continuing to run it's fingers across it's side. The beast took the food surprisingly gently, without causing any pain to the alien whatsoever. "Maybe survival is less important for it than you thought." The alien said. "What should we call it?"
+
+"What should I call you?" The boy responded, a question that somehow hadn't entered his mind until now. It hadn't felt important. He hadn't felt any urgency, in fact he simply hadn't thought of it. The aliens presence was enough. And there's less importance to name things when there's few of them.
+
+"I don't know. Why don't you tell me?"
+
+He let out a quick laugh but could tell by her face that she meant it. "Okay." His head fell backward as he racked the cosmos of his brain for ideas. Eyes tracing the folds of the floating white spirits above them. It was then, a moment resurrected within his soul. A hand pointed had pointed towards the lights filling the night sky. It drew lines around his imagination, and the letters emerged from that memory and the softness of the voice he had heard. "Eta. I'll call you Eta."
+
+"Wow. What does it mean?"
+
+"I - I can't say I know. But I remember something." His eyes fixed on green blade between them. "I think it's important."
+
+"I'll call you Phi."
+
+"What does it mean?"
+
+She smiled. "I don't know. But I like how it sounds."
+
+"Phi and eta. I like that. What about this one?" Turning toward the beast still resting next to them.
+
+"What about" the beast jerked it's muzzle in the direction of the hillside, lit now only at the very top. It lept up and past them with such speed they had no time at all to react.
+
+# Part 10
+
+By the time they had fully stood to their feet, the beast had ascended part of the hillside afar off and trailed off to the right side out of sight.
+
+"Should we follow?" Eta said, voice fluctuating from the sudden shift.
+
+"Where else could we go?" He squeezed her hand, still placed in his from helping her up. He leaned and picked up the ration back. "Let's go."
+
+They moved as quickly as possible toward where they thought the beast had disappeared. Eta, surprisingly quick to him now that she was conscience and fed. She held to his guiding hand as they moved, listening to his warnings of changes in terrain, pieces of broken pillars lying dead in their path and holes of varying size.
+
+The pillars stopped climbing the hillside as it grew steeper and left it exposed as it stood high above the area they were before. Above where the pillars stopped seemed to be where the beast had gone, but at this point they were only speculating where it had gone to. Regardless, they trudged on. The pathway turned more upward and the frequency of their breathe ascendended quickly like the elevation.
+
+The absence of light was starting to make it difficult to choose footing well and Eta slid because he missed steering her away from a loose section of rock. "Are you alright!"
+
+"I'm fine." She said. "Let's keep moving."
+
+They stood on a ridge, overlooking a dip in the hillside. "I don't know where to go."
+
+"Can you see anything?"
+
+He focused on the thick darkness of the dense pillars. Assuming the beast must have descended back into the growth, but couldn't see any movement.
+
+He pulled her in the only direction he could think of, continuing the arc of their movement over the rolling terrain at the bottom of the hill. But they didn't get more than a few paces before they heard a strange sound echoing down the hillside before them. It was elongated like the space between the source of the sound and them, but it held a power over their imaginations.
+
+"What is that?"
+
+His eyes were drawn to a point on the opposite crest of hillside where the faint silhouette of the beast loomed. "I see it!" It caught his gaze and then walked across a small section of the hill and then slipped into what looked like a 20 foot tall vertical crack near where the hill started to flatten at the top.
+
+They were down the steep terrain very quickly and ascending the opposite wall. Nearing the crack, "Stay quiet." His voice now low. "I don't know what might be here."
+
+The crack was more than twice the height of them, and stood like a rock doorway into the hill. They stepped over a large rock guarding part of the opening and were able to stand with a foot or so of clearance to their side. It turned around corners where barely any light now touched. Eta's hand steadied her movements as she stepped over large obstructions.
+
+The path split into two directions. Without presenting the problem, he chose the one to his left that appeared more open and holding her hand, led her in it's direction. Around one turn, he froze when he saw two tiny lights not more than 20 feet down the corridor. Two more arose as his foot kicked a small rock making a crackling that rattled down the hall.
+
+"I think there's two of them."
+
+"Do you think it's okay?" Eta presented the words ever so softly beneath her voice.
