@@ -919,12 +919,98 @@ He pulled her in the only direction he could think of, continuing the arc of the
 
 His eyes were drawn to a point on the opposite crest of hillside where the faint silhouette of the beast loomed. "I see it!" It caught his gaze and then walked across a small section of the hill and then slipped into what looked like a 20 foot tall vertical crack near where the hill started to flatten at the top.
 
-They were down the steep terrain very quickly and ascending the opposite wall. Nearing the crack, "Stay quiet." His voice now low. "I don't know what might be here."
+They were down the steep terrain very quickly and ascending the opposite wall. Nearing the crack, "Stay quiet." His voice now low. "I don't know what might be in here."
 
-The crack was more than twice the height of them, and stood like a rock doorway into the hill. They stepped over a large rock guarding part of the opening and were able to stand with a foot or so of clearance to their side. It turned around corners where barely any light now touched. Eta's hand steadied her movements as she stepped over large obstructions.
+The crack was more than twice the height of them, and stood like a rock doorway into the hill. They stepped over a boulder blocking part of the opening and were able to stand with a foot or so of clearance to their sides. It turned around corners where barely any light now touched. Eta's hand steadied her movements as she stepped over large obstructions.
 
-The path split into two directions. Without presenting the problem, he chose the one to his left that appeared more open and holding her hand, led her in it's direction. Around one turn, he froze when he saw two tiny lights not more than 20 feet down the corridor. Two more arose as his foot kicked a small rock making a crackling that rattled down the hall.
+The path split into two directions. Without presenting the problem, he chose the one to his left that appeared more open. Holding her hand he led her in it's direction. Around one turn, he froze when he saw two tiny lights not more than 20 feet down the corridor. Startled, he kicked a small rock making a crackling that rattled down the hall, and two more lights illuminated.
 
 "I think there's two of them."
 
 "Do you think it's okay?" Eta presented the words ever so softly beneath her voice.
+
+"I'm not sure." The boy, kept them still for a few moments as he considered what dangers the scenario might create. Movement of two of the lights interrupted his thoughts and they started to grow. "It's moving toward us." He wrapped his back arm around the front of Eta like a shield and held the other out in front. The eyes floated in the darkness until the dull blue light cutting through the air before him formed a strange shape around the lights. He recognized the form of the beast from earlier. Still though, he remained as it continued toward him. Nearing, he raised his hand toward it as it stopped and peered up toward his face. After only a moment, it leisurely turned back and started walking toward where it came. "I think it wants us to join."
+
+Eta waited for his move. And they cautiously stepped into the deeper darkness before them. Entering the space of the second pair of eyes, the boy kept them a few feet away as not to startle the hidden creature. It was clear to him by now that these beings could potentially be dangerous, but the eyes only watched them as they found space to lie on the hard ground, then they disappeared.
+
+The boy was a barrier between the beasts and Eta. "Will you be able to sleep like this?" He whispered into the nothingness, but no response came. Only then did the exhaustion within himself flood him.
+
+# Part 11
+
+The morning brought with it a new sensation. He could have slept indefinitely but he could no longer feel the right half of his body making it very uncomfortable to remain in the position he was. Eta remained still, her face now visible in what appeared to be early light, eyes closed and mind somewhere else. Neither of the beasts remained so Fi, curious, stood to see where they might have gone to. He kept his movements quiet as not to wake her.
+
+Stepping through the corridor, with each turn the light grew brighter though it was never direct. It was only a short walk back to the opening in the crack, but he stopped to consider whether they might have gone down the other arm of the pathway. Stretching his leg as it regained feeling, he decided not to get too afar off alone and turned to the opening.
+
+It stood tall and illuminated by the morning light, it could have been mistaken for a doorway to the afterlife. He rubbed his eyes and shielded them from it's intensity until the pain receded.
+
+"Woa..." There below, and beyond, the planet folded into itself. The green pillars rose and fell with the hills until they flattened into a knifes edge. He wondered if infinite lied somewhere beyond or if everything just ended. The morning sun was welcoming, he sat near the oopening of the crack on a semi-level spot. The view, high above everything continued all the way to his left and to his right with no obstructions.
+
+A tear crawled down his face and fell, landing on the dry rock below. He curiously touched it with his finger and felt the moisture then his cheek still wet. His eyes returned to the site so far from anything he had could recall ever seeing. It felt so real, like everything had been fake and now it was becoming what it was. But there was far too much to grasp in the moment.
+
+Observing this realm, his eyes eventually trailed off toward the right. He had mistaken the stark contrast of the harvested areas for a continuation of the horizon and traced the line back as far to his right as it would go. A massive area of nothing. A tear landed on the back of his right hand. He didn't examine it. It was then he realized he was not alone. The beast from the day before stood looking as well. It didn't acknowledge him but joined in observation as though it understood the feeling.
+
+"Fi?!" A voice echoed through the corridor.
+
+_Eta must be wondering where I am._ "Out here!" He stood and stepped back into the doorway. She had made it surprisingly far and was almost to the opening. "I'm right here. Right by the opening. How did you make it all the way out here?"
+
+"I remembered our footsteps from last night, and the walls are easy to follow."
+
+"I didn't mean to..." He was stopped by her.
+
+"I knew you didn't go far."
+
+He grabbed her hand that was feeling the wall near him, "Come here. Watch the rock below you." He guided her movements and made space for her next to him. "If only you could see what I'm seeing right now."
+
+"Describe it to me." She replied.
+
+"We are high above the pillars. It almost looks like they go on forever."
+
+"Mm," she murmured. "But you know they don't."
+
+"What do you mean?" He looked her face over, eyes like blue fire in the light. He wished, if only they saw into him.
+
+"Haven't you thought about it?" He wasn't sure where she was going. "What brought us here?"
+
+"I - I haven't. This place has just been so much."
+
+"What if there's more of us?" She asked.
+
+Something about the question felt burdensome. As though it would cost him something he wasn't wanting to give up. "I don't know."
+
+"What do you mean you don't know?"
+
+"I just don't know!" He raised his voice at her and felt a bit of a fire inside that he hadn't before. "I'm sorry. I just don't know if I want to know." His eyes returned to the knife edge at the end of everything. The blue above met it with a stark contrast creating an appealing view. His eyes rested there until, eventually another layer of blue, not much different than the sky appeared. _What is that?_
+
+"I think I see something."
+
+"What is it?" asked Eta.
+
+"I don't know but it's like what is above us, changes far out there." He squinted to make out the difference. Light looked to almost dance across the surface where it rested upon his discovery. It reminds me of the liquid we sat in. But it's endless.
+
+"We should go there."
+
+"It's so far," He said.
+
+"Where else can we go?" She smirked, and a short laugh of his accompanied the gesture.
+
+"Okay." He turned back to the view and began plotting pathways from here to there. Over the Fifth hill in his view, quite far away, he noticed something strange. A large patch of earth looked discolored, lighter than what he had seen. _Is that rock?_ He moved forward and knelt on one knee, the opposite hand above his brow, blocking the intense light and squeezed his eyes even harder, sharpening the image. "Looks like, a wall."
+
+"You see something else?"
+
+"Where the hills meet is low. It looks like a wall is between them." He knew it sounded strange, but hadn't the words to qualify. It gave him an odd feeling. Like something had hardened inside him.
+
+"We should go!" Eta said joyfully.
+
+He didn't share the feeling, but agreed instead. After they had grabbed their bag and slipped out of the corridor. They started down the hillside carefully.
+
+Hearing quick footsteps the boy looked back and saw the two beasts now coming toward thme. They stopped before them, appearing even more ready for the travel than they were.
+
+"Our friends are back."
+
+"Oh good!" Eta replied.
+
+"I think they might be joining us."
+
+She giggled in response before nudging for them to continue on their way. Their crew had grown by two.
+
+The rocky incline made slippery steps, but they still made it down fairly quickly. The beasts stayed behind them on the incline, but then started leading the way when it leveled out. Their muzzles frequently hovering low over the ground, gathering data.
