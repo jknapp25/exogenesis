@@ -1055,5 +1055,44 @@ Something about that notion felt encouraging to Fi. This place had always an air
 
 The beasts lost interest in the creature eventually and licking their lips and backing off, trailed off forward muzzles still adhered to the ground.
 
-"Let's keep moving." Said Fi, he walked past the mutilated creature, observing the point off it's head and the colorful hairy leaves lying around it's little carcass.
+"Let's keep moving." Said Fi, he walked past the mutilated creature, observing the point off it's head and the colorful hairy leaves lying around it's little carcass. It was a mess, but it seemed important. As though it was signified change.
 
+They entered into the pillars, fallen ones lying about or resting against vertical ones, others with hundreds of tiny pillars growing out of them. It was easy to mistake in the stillness, like nothing was happening, nothing was changing. But so much was happening so much was changing. Always changing. The floor between the pillars was littered with endless peculiarities. He had hardly gotten past the intricacy of the pillars and their far reaching tendrils floating in the air to notice what weaved within his feet below.
+
+Green arms with skeletal like shapes spread out from one center position, tiny pillars 1000 times smaller than their larger counterparts, green fur taking over fallen pillars like a massive blanket. The strangest was these small circular white and brown saucers, suspended on a tiny mast. Pearing below, he could see slits rounding the mast in a perfectly straight circular pattern. They were scattered about in places semi-hidden.
+
+Eta stayed fairly silent, until she asked, "what do you think we might find?"
+
+"I don't know. This place surprises me." He replied.
+
+"What about it surprises you?"
+
+"Everything. I can't believe I had never known about it. I had gone so long without knowing."
+
+"How long?"
+
+"As long as I can remember I guess." He tried to recollect the days into some number but so many seemed to endlessly bleed into others. "What about you?"
+
+"I feel the same. I really can't remember anywhere other than this place, but I don't think I came from here."
+
+"How did we never come across each other out there?"
+
+"I guess we wern't looking. I guess we weren't looking for anything." She said like a revelation of sorts entered the space around her.
+
+"We weren't looking for anything," he said softly underneath his breath, as he crawled above an enormous looming pillar fallen for however long.
+
+"What was that?"
+
+"Oh nothing. Just...don't you think it's strange? Why wouldn't we ever stop. Just stop doing what we were doing, and go somewhere. Out into the pillars. Outside of the harvester or the home pod. Just go."
+
+"Where would you have gone?"
+
+"I don't know. To find something! Anything. Anything new." The thoughts were new terrain he was claiming within himself like the terrain he was setting foot upon now. Untouched for so long. "But I guess I didn't want to. Or maybe I did but didn't know it."
+
+He grabbed the severed limb of pillar and held it in his free hand as he walked. He examined the shape of the thing and how it twisted here and there freely, of it's own accord.
+
+They entered an area visible to where they had met the beast the day before but still a ways off.
+
+"Oh!" Eta's hand slipped out of his and she fell to the ground. He turned, "Are you hurt?"
+
+"No I'm fi..." She stopped as she sensed his attention shifted towards something else. By her foot was a few smooth white shapes, long and slender. He slowly reached down to touch them. He pulled on one of them and the ground covering part of it came with it. He fell back in fear, like he had been punched in the chest. Below the growth the same white shapes formed into roughly a similar look as the beasts.

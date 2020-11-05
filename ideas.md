@@ -4,3 +4,6 @@ When her mother extracts his memories and hacks the screens to play them, she hi
 Strive to decrease reading level
 Talk about the silence of the forest, that could be eery
 The memories of previous harvester kids get's passed on to the next after they die
+Maybe all details are telling details
+Include pictures, drawings, images
+Number chapters/parts like 1,2,1,2,3,4,1,2,3,4,5
