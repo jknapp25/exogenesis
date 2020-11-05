@@ -1013,4 +1013,47 @@ Hearing quick footsteps the boy looked back and saw the two beasts now coming to
 
 She giggled in response before nudging for them to continue on their way. Their crew had grown by two.
 
-The rocky incline made slippery steps, but they still made it down fairly quickly. The beasts stayed behind them on the incline, but then started leading the way when it leveled out. Their muzzles frequently hovering low over the ground, gathering data.
+The rocky incline made slippery steps, but they still made it down fairly quickly. The beasts stayed behind them on the incline, but then started leading the way when it leveled out. Their muzzles hovering low over the ground, gathering data.
+
+"They must always be searching for food." Fi mentioned as he watched them weave in and out of the wall of pillars that approached. "I don't think there's anything here to eat."
+
+"We could give them something," Eta said after a moment of thought.
+
+"We already don't have much for ourselves."
+
+"I know, but they let us stay with them. And they are coming with us now. We have more mouths to feed." Their steps continued. "And we might find food."
+
+Fi had little trust that would be possible, so remained quiet as his thoughts considered. If we each take two ration packs a cycle, we have about 5 cycles til we are out. If we give them the same we would only have a few cycles left.
+
+"I don't know. I think we should keep them, but what if we give one to them right now, then see if maybe they already know how to find their own food."
+
+"Okay." Said Eta, "But if after a day or two they can't, then we share."
+
+"Agreed." Fi squeezed her hand to solidify their pact and stopped before the border of the dense pillars to take out a ration pack. He grabbed one without looking and yelled in the direction of the beasts. They were both out of site but came trotting back together.
+
+The larger of the two stopped immediately in it's tracks and it's ears shot up pointing to the sky, eyes fixed somewhere in the pillars, it darted without any warning of to the left. The other stopped and watched, but never left to follow.
+
+"What's going on," asked Eta.
+
+"Shh." They stood still for 15 more seconds before a trotting figure could be made out deep into the pillars. It emerged at the point it left to return to the other beast. But it had something within it's jaws. "It found something." Whispered Fi.
+
+"What is it?"
+
+"I don't know, let's get closer."
+
+The beast had placed the object between it and the other one and was now pressing down upon it with it's leg and plucking at it with it's teeth. Eventually it rose and looked at Fi and Eta as it chewed. The other repeated this behavior.
+
+"They're eating it."
+
+"Eating what?" Eta continued to question.
+
+"I have no idea. I think was another creature. But that can't be, I thought we were the only one's here."
+
+"Maybe there's more."
+
+Something about that notion felt encouraging to Fi. This place had always an air of isolation to him, but the thought of even more living things out there made him feel less alone. Less like what he had done with the harvester had ruined this place. Maybe this place was more resilient than he had considered.
+
+The beasts lost interest in the creature eventually and licking their lips and backing off, trailed off forward muzzles still adhered to the ground.
+
+"Let's keep moving." Said Fi, he walked past the mutilated creature, observing the point off it's head and the colorful hairy leaves lying around it's little carcass.
+
