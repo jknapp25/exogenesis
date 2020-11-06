@@ -1095,4 +1095,60 @@ They entered an area visible to where they had met the beast the day before but 
 
 "Oh!" Eta's hand slipped out of his and she fell to the ground. He turned, "Are you hurt?"
 
-"No I'm fi..." She stopped as she sensed his attention shifted towards something else. By her foot was a few smooth white shapes, long and slender. He slowly reached down to touch them. He pulled on one of them and the ground covering part of it came with it. He fell back in fear, like he had been punched in the chest. Below the growth the same white shapes formed into roughly a similar look as the beasts.
+"No I'm fine..." She stopped as she sensed his attention shifting towards something else. By her foot she had kicked up a few smooth white objects, long and slender. He slowly reached down to touch them. He pulled on one of them and the ground covering part of it came with it. He fell back in fear, like he had been punched in the chest. Below the growth a pile of the objects formed a pattern. He leaned back forward to examine the strangety and concluded it resemebled the shape of their beasts. There was also layers of hair surrounding the objects. Something was very intriguing about them to Fi.
+
+His memory returned. "The glitch." He said aloud. A cold wave rolled through his body accompanied with a heaviness in his stomach. He fell to his knees and clawed at the ground with his hung low.
+
+"What's wrong?" Said Eta, placing a hand upon his back.
+
+"Everything. This place is empty. There's nothing here for us. We destroyed it all." His eyes flooded with liquid and a stream began to drip from his face. It felt as though someone incredibly important to him had been torn away. His body loosed, and breathing slowed, _why does this feel familiar?_
+
+"What about the others?" Eta said, trying to comfort him.
+
+He wiped his eyes and opened them, immediately seeing a massive pink tongue coming at his face that he couldn't dodge. It left what felt like half of his face wet. He was unable to hold back a small smile. "I guess it's us 4." He stood and saw the other poised to continue moving on. It's gaze was encouraging in a way. It gave him hope meerly in the action of continuing. "Let's keep going." His voice took on a more positive tone. He looked back at the mess, _goodbye,_ a voice responded from somehere he could not tell, "goodbye my son."
+
+# Part 12
+
+Grabbing Eta's hand, they continued onward, at a faster pace than before. The beasts clearly could sense the new energy and were leaping onto each other and rolling hear and there as they maintained somewhat of a pace.
+
+For a while nothing was said between the two of them, both lost in thought.
+
+"Try to catch me."
+
+Fi's head turned toward her then she took off in front of him. She jogged with her arms spread out forward in front of her, she darted from pillar to pillar, her feet rising higher off the ground to not be caught on whatever might be lying below her that she doesn't see. He watched her for a while with no desire whatsoever to stop her. The way her face looked made this world seem different. Like an abundance.
+
+Eventually he circled around her potential route a bit further ahead of her. He synced the majority of his movements to her laughter so that she wouldn't detect his movement. He stopped between two pillars no further than an arms length apart. She approached until just close enough that he wrapped his arms around her right before she ran right into him. Her laughter floated upward and weaved in and out of the pillars tendrils. It floated back down to them as they stopped and the moment silenced. He looked her directly in the face and could feel her looking back though he knew her eyes didn't catch him. He put one around her and pilled her a few inches closer til their faces were no more than 6 inches apart.
+
+"I see you." She said with words filled with breathe.
+
+"I see you." He whispered.
+
+"No, I - I can see you." Her eyes lit up as he hadn't seen yet. And her mouth opened wide in awe. Her cheeks were painted red as she covered her mouth with her hand and cried tears of new life into her palm. "I can see!"
+
+"Wait, wait, wait..." Fi stepped back and leaned from side to side, and waved his hand. Her eyes tracked his every movement. "Ha! No way!" His confused face morphed into one of happiness like he had been handed an extraordinary gift out of thin air. He wrapped her into his arms. "I have alot to show you." He whispered to her. "Try to catch me." He said cheekily.
+
+She was able to move much quicker now and kept up with him well. She stumbled a few times as they continued on.
+
+The air moved switftly past them, swaying the tops of the pillars and their green clouds of leaves danced in the movement. They were able to move quite a bit faster now that they had four eyes available. The beasts, still led the way almost the entire time accept for when they trailed off on a more interesting scent.
+
+"I don't know how to describe this place! There's so much to look at." She stopped and examined the surface of oen of the pillars, it's deep ridges running long down it's side. She followed it's grain down to the ground where green needles surrounded her boots then picked one up and held it close to her face. "Incredible..." She looked at him with a smile, then ran past him leaping up to grab green handfuls of the green shapes. "I can't believe I have missed out on all of this. I don't know what to say."
+
+"I wonder why your sight came back now."
+
+She shook her head with. "I don't know... But I'm glad it's back!" She continued off in front.
+
+Something about the shift left him a bit uneasy. It felt too abrupt. _How could that happen?_ He pondered. How could something like just be fixed so quickly. _Could she have been pretending?...No, that would have been pointless!_ Many ideas floated through his head but none felt fitting until suddenly he recalled his question from the meadow.
+
+_Who did this?_ Who did this. That stuck.
+
+The words on the pods wall. The empty square outline in the meadow. Was the same being behind those as well? _What is going on?_
+
+# Part 13
+
+The pillars continued on forever. Fi started to feel a pain in his stomach. "Let's stop to eat."
+
+"Okay!" Eta called from not far ahead, dropping the intricate green object she was holding to come closer.
+
+He swung the ration back off his shoulder and started sifting through it. "Bread?" He grabbed two and held one out twoard her.
+
+"Perfect." She replied. She slid the substance out of the tight sleeve and held it before her eyes to gather data on it's qualities.
