@@ -1149,6 +1149,92 @@ The pillars continued on forever. Fi started to feel a pain in his stomach. "Let
 
 "Okay!" Eta called from not far ahead, dropping the intricate green object she was holding to come closer.
 
-He swung the ration back off his shoulder and started sifting through it. "Bread?" He grabbed two and held one out twoard her.
+He swung the ration pack off his shoulder and started sifting through it. "Bread?" He grabbed two and held one out twoard her.
 
-"Perfect." She replied. She slid the substance out of the tight sleeve and held it before her eyes to gather data on it's qualities.
+"Perfect." She replied. She slid the substance out of the tight sleeve and held it before her eyes to gather data on it's qualities. Twisting and turning it in her hand, she focused on it with an admirable intensity.
+
+"What is it like?"
+
+"What do you mean?"
+
+Fi delayed his first bite, "What is it like for everything to change in an instant?"
+
+"Well don't you know? You were like me. Frozen in endless cycles. But then you were broke free."
+
+He looked down at his bread. "I hadn't thought of that." Twisting the strange loaf between his fingers. "I guess everything is different now. There's no going back."
+
+"Why would you want to go back?" She said, then took a small bite.
+
+"No, I don't. I really don't. -- I just. It takes alot more out here...To live."
+
+Eta listened intently.
+
+"I wonder if I can do it." His eyes were magnetically pulled downward.
+
+Eta repositioned herself to be closer to him then placed her hand on top of his pressing into the ground. "You saved me." Her gaze exuded hope though he was not able to look up yet. "You can do anything. I know it."
+
+Her words resounded through the corridors of his soul and took root therein.
+
+The beasts were no doubt getting restless, there entertainment having become placing each others entire muzzles inside their mouths or digging for what appeared to be nothing at all.
+
+"Let's keep moving." Before his words could finish exiting his mouth, the sky darkened. A gray mass quickly hovered past them causing the pillars to shake. "Hide!" He pressed Eta deeper below the dense shelter of the pillars. The beasts were likely still visible from above though.
+
+The object moved on quickly in a direction Fi did not think he had ever been. "I think we should follow it!" He yelled over the now diminishing roar of the soaring object and the residual chatty pillars.
+
+"But it's moving very fast."
+
+"No time to waste then!" He slung the ratoin bag over his shoulder and grabbed Eta by the hand and they were off. They speed through the pillars like wind and the two beasts jolted out ahead, excited no doubt by the sudden activity.
+
+They started up an incline, leaping over fallen pillars, and taking large strides. They contined in the same direction though the object was nowhere in sight. At the top of the incline the pillars still gave plenty of cover. Fi looked around for a high point that might give them somewhat of a view. The hill dipped toward the right then rose again at a higher elevation where it looked as though there was a gap in the pillars. He darted off in that direction.
+
+"Where are you going?" Yelled a confused Eta. Though he gave no response.
+
+Exhausted from the quick climb, she declined to follow at the pace he moved, but let him go on ahead. For a few seconds, no sound came from over the crest of the high point, then a voice.
+
+"Eta! Come here!" His voice gave the air of secrecy as though she were to enter with some form oof stealthiness so she did just that, and scaled it with a watchful eye on her surroundings. There up top, he sat nestled behind a large rock covering with strange patterns of white growths and soft looking green hards in concentrated patches like little clouds.
+
+"Stay low," he almost whispered.
+
+Past his head if she refocused her eyes, not afar off was quite familiar looking terrain. She huddled behind him to examine. She had not seen the area before with her eyes.
+
+"That's my pod!" She exclaimed in awe.
+
+He turned and looked over his shoulder, "really?" She nodded.
+
+She had yet to be confronted with the devastation she had causedd to this place. Basically nothing was left for as far as they could see from the elevation, just remnants of obliterated pillars, shredded by her harvester and flattened by it's ominous tracks. Every square foot bared her powerful fingerprint. It brought the heaviness to her stomach. She shook her head to relinquish the thought, recognizing his intentions were not to reveal to her what she was seeing.
+
+Near the pod, the massive machine was hovering in the same position doing nothing noticeable from the outside.
+
+"What do you think it's doing?" She asked, trying to prove her interest.
+
+"I don't know. Scanning?"
+
+The structure was impossible to miss, pitched black against the reddish-brown ground and the scattered pillars. Apart from the contrast, a large stack pillars, organized in the uniform orientation lie prepped next to it. Though not as plentiful as usual. She wondered if the mechanism had noticed.
+
+They sat still as the machine hovered still, waiting, as the seconds grew into suspenseful minutes. Then without any warning, it slowly pushed closer to the pod. Once above, it shifted til it was directly above the pile then unfolded 8 massive hook-like appendages from it's underbody and lowered til it almost perched atop the heap. The claws spread wide and lowered til they touched the surface of the ground, then penetrated the soil like butter as they pressed toward each other like a huge closing hand. Loud cracks resonated across the flattened terrain as the mass pressed into itself. The claws began to withdraw and lift upward. The space below grew and grew, and then the pillars were fully consumed.
+
+"Woa." Fi said under his breathe. "That's where it goes."
+
+The machine then hovered still again for a short time then lifted and banked toward them.
+
+"Hide!" Fi shouted again and they pressed into their rock shield til it was out of sight.
+
+"SpaceX." He said.
+
+"What?" Confused.
+
+"You didn't see it? On the bottom towards us it said, SpaceX Collector. On ours it says SpaceX Harvester. I wonder what that means." He pondered the idea as he stood and started walking back toward where they had come.
+
+"Does it matter?"
+
+"Of course it matters." He turned around and contined backwards, "Aren't yuo curious what this is all about?"
+
+"Not really."
+
+"How so?"
+
+"Well, I just don't know what we could do." She said shrugging her shoulders.
+
+"Neither do I. But I can't help but shake the feeling that maybe it's important to investigate. Who knows what could happen here. Who knows how we even got here!"
+
+The air was warm as they descended the area they had been. The air between them was cooler, as though their interests might not be fully aligned.
