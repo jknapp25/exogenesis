@@ -1227,14 +1227,9 @@ The machine then hovered still again for a short time then lifted and banked tow
 
 "Does it matter?"
 
-"Of course it matters." He turned around and contined backwards, "Aren't yuo curious what this is all about?"
+"Of course it matters." He turned around and contined backwards, "Aren't you curious what this is all about?"
 
 "Not really."
 
 "How so?"
 
-"Well, I just don't know what we could do." She said shrugging her shoulders.
-
-"Neither do I. But I can't help but shake the feeling that maybe it's important to investigate. Who knows what could happen here. Who knows how we even got here!"
-
-The air was warm as they descended the area they had been. The air between them was cooler, as though their interests might not be fully aligned.

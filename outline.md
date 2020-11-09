@@ -46,7 +46,7 @@ Decide to search for his dog
 Finds it
 Finds a disaster bunker below the house with food, bed
 
-9
+9 (start here)
 Discussion about truth together
 Many questions answered here
 
