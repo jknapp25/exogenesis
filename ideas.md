@@ -21,3 +21,4 @@ Number chapters/parts like 1,2,1,2,3,4,1,2,3,4,5
 Re-write to follow what's happening even closer, instead of "hands clawing at the ground", go "and clawed his hands at the ground"
 Dumb the speach down just a bit to be more readable
 Do a couple passes with Grammarly at the end
+Add some humorous scenes throughout

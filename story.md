@@ -1199,31 +1199,33 @@ Past his head if she refocused her eyes, not afar off was quite familiar looking
 
 "That's my pod!" She exclaimed in awe.
 
-He turned and looked over his shoulder, "really?" She nodded.
+He turned and looked over his shoulder, "really?"
 
-She had yet to be confronted with the devastation she had causedd to this place. Basically nothing was left for as far as they could see from the elevation, just remnants of obliterated pillars, shredded by her harvester and flattened by it's ominous tracks. Every square foot bared her powerful fingerprint. It brought the heaviness to her stomach. She shook her head to relinquish the thought, recognizing his intentions were not to reveal to her what she was seeing.
+She nodded, her eyes fixed past him.
+
+She had yet to be confronted with the devastation she had caused to this place. Basically nothing was left for as far as they could see from the elevation, just remnants of obliterated pillars, shredded by her harvester and flattened by it's ominous tracks. Every square foot beared her powerful fingerprint. It brought the same heaviness to her stomach. She shook her head to relinquish the thought, recognizing his intentions were not to reveal to her what she was seeing.
 
 Near the pod, the massive machine was hovering in the same position doing nothing noticeable from the outside.
 
 "What do you think it's doing?" She asked, trying to prove her interest.
 
-"I don't know. Scanning?"
+"I don't know. Observing?"
 
-The structure was impossible to miss, pitched black against the reddish-brown ground and the scattered pillars. Apart from the contrast, a large stack pillars, organized in the uniform orientation lie prepped next to it. Though not as plentiful as usual. She wondered if the mechanism had noticed.
+The structure was impossible to miss, pitched black against the reddish-brown ground and the scattered pillars. Apart from the contrast, a large stack of pillars, organized in uniform orientation lie prepped next to it. Though not as plentiful as usual. She wondered if it had noticed.
 
-They sat still as the machine hovered still, waiting, as the seconds grew into suspenseful minutes. Then without any warning, it slowly pushed closer to the pod. Once above, it shifted til it was directly above the pile then unfolded 8 massive hook-like appendages from it's underbody and lowered til it almost perched atop the heap. The claws spread wide and lowered til they touched the surface of the ground, then penetrated the soil like butter as they pressed toward each other like a huge closing hand. Loud cracks resonated across the flattened terrain as the mass pressed into itself. The claws began to withdraw and lift upward. The space below grew and grew, and then the pillars were fully consumed.
+They sat still as the machine hovered still, waiting, as the seconds grew into suspenseful minutes. Then without any warning, it slowly pushed closer to the pod. A dull roar signifying it's movement. Once above the pods vicinity, it shifted til it was directly above the pile then unfolded 8 massive hook-like appendages from it's underbody and lowered til it almost perched atop the heap. The claws spread wide and lowered til they touched the surface of the ground, then penetrated the soil like butter as they pressed toward each other like a huge closing hand. Loud cracks resonated across the flattened terrain as the mass pressed into itself. The claws began to withdraw and lift upward. The space below grew and grew, until the pillars were fully consumed disappearing into the belly of the massive mechanism.
 
-"Woa." Fi said under his breathe. "That's where it goes."
+"Woa." Fi said under his breathe. "That's where they go."
 
-The machine then hovered still again for a short time then lifted and banked toward them.
+The machine then hovered still again for a short time then lifted and banked in their direction.
 
-"Hide!" Fi shouted again and they pressed into their rock shield til it was out of sight.
+"Hide!" Fi shouted again and they pressed into their rock shield til it had disappeared past the wall of pillars behind them.
 
 "SpaceX." He said.
 
-"What?" Confused.
+"What?" Eta said, confused.
 
-"You didn't see it? On the bottom towards us it said, SpaceX Collector. On ours it says SpaceX Harvester. I wonder what that means." He pondered the idea as he stood and started walking back toward where they had come.
+"You didn't see it on the bottom? It said, 'SpaceX Collector'. On ours it says SpaceX Harvester. I wonder what that means." He pondered the idea as he stood and started walking back toward where they had came.
 
 "Does it matter?"
 
@@ -1232,4 +1234,3 @@ The machine then hovered still again for a short time then lifted and banked tow
 "Not really."
 
 "How so?"
-
