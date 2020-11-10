@@ -1236,3 +1236,53 @@ The machine then hovered still again for a short time then lifted and banked in 
 "How so?"
 
 <Locked on ship scene>
+
+He slipped into the bottom left corner of the enormous opening, like a rodent to it's burrow, then crouched and hugged the perimeter wall, hidden behind a large metal box as not to be seen.
+
+Peering out, his eyes scanned every inch of the area for any movement, and sign of intelligent life. So much of the space was filled with the pillars that it was hard to tell if there might be something or someone behind them. It was also much darker in the space, the majority of the vast majority of the light coming from the opening, though a few light small blue light sources were scattered about deeper into the monstrosity.
+
+He could hear the thud of his heart pumping while he held his breathe cautiously. After a few moments, it was clear no one or no thing had noticed him make his entrance, so staying low and moving slow, he crept out from behind the box. He moved quickly and tucked behind the next thing he could. A beam reaching high to the ceiling and traveling across to the opposite side where it met another. Tracing it with his eyes it called to attention even moreso how large the space was.
+
+His eyes were adjusting.
+
+Toward the back there appeared to be steps going up to another level, open to the area. A blue light was above what looked like a doorway. Nothing here was labeled, but it was the best he had, so quietly, trying not to create an echo with his steps, he darted again further into the space. Covering more ground this time and hiding behind the next beam. He peaked through a circular hole cut into a flange in the large beam. From this angle he could now see the entire back area. There didn't appear to be much on the lower level at all, other than more large metal boxes with shiny circular dots and shiny handles. He could now see that the wall behind the open area on the upper deck had a large glass window.
+
+He was more lax with his movements now that it appeared nothing was really on the lookout. Still quietly, he left his spot and climbed the stairs, eyes observing everything around him like a hawk as he got higher. The window was placed such that if he took the leftmost side of the stairs, anything inside would not be able to see him. Ascending the steps, the safest spot to hide at this point was right be the door, out of view of the large window.
+
+Unsurprisingly the rest of the space on the other side of the pillars was more of the same. Large metal boxes, wires, beams. Clearly this machine was made for transporting large things like the pillars.
+
+He stopped and scanned the doorway, hoping there would be some way of knowing if it was safe before opening it, but there was no hints whatsoever. He swallowed and looked around once again. _I can't just leave._ He thought to himself.
+
+The adrenaline boiled inside his vains and he knew what he was going to.
+
+He slowed stepped even closer to the door and reached for the handle. He grasped it, cold in his hand, and winced while trying to slow his breathe.
+
+He pressed it down.
+
+But nothing.
+
+It didn't move. Not even in the slightest, and neither did the door open. Pressing harder did nothing either.
+
+"Kshhhhhh..." The sound came from the doorway, he crouched low to hide shield himself behind the decks floor, but wasn't sure where the sound was coming from.
+
+_The door!_ A cool flushed over him as he realized what it was. It was closing. And quickly.
+
+Without hesiation, he jolted to the stairway and floated down it bearly touching the steps at all. Then sprinted as fast as he possibly could. The gap now half his height, he dove for it. But a bottom metal plate lifted up right to meet the top door and he slid up onto it, his arm the only part of him outside. He pulled it back right before he lost it in the metal jaws.
+
+_No - No_ "No. No! NO!" He carelessly yelled at the wall as if it would make any exception. His words rattled around the interior but no response came accept for his own echo. He was locked inside.
+
+Fear set in.
+
+The blue light was all he could see by now, accept for some natural light streaming in on the far left side up on the balcony. He ran to the stairway and up to the light and looked through it below. Almost immediately, he felt his body become heavier and the ground started to move away.
+
+"NOOOOOOOO." He could see Eta, emerged from her hiding place, now running at the Harvester. "NOOOOOOOOOO." He hit the glass window with his fist. She got smaller, with everything else around her. The pod. The nearby pillars. The hills.
+
+He pressed his wet face against the cold glass wishing he could slip through it. Threads of moisture stuck to it as he pulled back and rocked forward and back in agony. He knew there was nothing to he could do now. And he had no idea where he was going.
+
+The glass went white without any warning and he couldn't see anything. _What happened?_ He looked out but nothing at all could be seen in any direction. For almost a minute he was quiet, hoping something would change. Then, as instantly as it had left, the view reappeared. But now nothing he knew was visible. The world took on a curvature and everything within it, was now reduced to intricate patterns of orange and brown. He could tell they were moving very fast because of the speed at which the world pulled away.
+
+The green he had known was gone. Barely a dot on the sphere. The rest was red and orange, massive gray swirls grasped huge areas of it, and green lasers shot out of it. He was awestruck and heartbroken all at the same time. Reduced to nothing but cargo. To whom, and to where, he knew not.
+
+He hadn't noticed the deep blackness he was now entering. The lights that lit up the night he had seen were now visible, but it wasn't night time. He asked himself if there would still be a night.
+
+The sphere lost it's dimensionality and became a small circle, growing smaller and smaller and smaller. Settling into it's position amongst the other lights. He sank to the floor exhausted.
