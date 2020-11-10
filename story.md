@@ -1234,3 +1234,5 @@ The machine then hovered still again for a short time then lifted and banked in 
 "Not really."
 
 "How so?"
+
+<Locked on ship scene>

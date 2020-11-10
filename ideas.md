@@ -22,3 +22,4 @@ Re-write to follow what's happening even closer, instead of "hands clawing at th
 Dumb the speach down just a bit to be more readable
 Do a couple passes with Grammarly at the end
 Add some humorous scenes throughout
+Maybe drawings will help me not have to describe stuff too much,
