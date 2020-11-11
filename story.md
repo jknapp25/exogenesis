@@ -1233,7 +1233,97 @@ The machine then hovered still again for a short time then lifted and banked in 
 
 "Not really."
 
-"How so?"
+"Why not?"
+
+"I just don't know what we could do about it."
+
+"Hmm." He kicked at the ground as his eyes carved lines into it. "I don't either. But I feel like it's important. To know these things. I don't know why, but I do."
+
+The beasts resumed their course and led them back down the hill they had all stormed. They said nothing, though none of them knew exactly to where they were headed. Fi wasn't sure it really mattered anyway, but he chose followed the directions he felt were right. Even if the decision was only made on how the pillars were displayed before him.
+
+Minutes turned into long, quiet hours. Naturally, the quietness of the environment calmed any nerves, but left such a massive space for their thoughts to fill.
+
+Afar off, the usual brown backdrop behind the pillars became bright green. Neither of them had noticed the change but both recognized it eventually.
+
+"What's that?" Said Eta, squinting to hopefully bring something into focus.
+
+"I don't know. Let's find out."
+
+As they approached, the glow flooded more of the air between the pillars, and it became apparent what they were standing before. Their footsteps stopped. Feet from the edge of a deadly fall. Hundreds of feet below the opposite hill across from where they stood, reached it's lowest point, then rose to meet them. The huge corridor continued off toward their left, and off toward their left, where it ended or where it went, it was unclear.
+
+He pointed up and to the left, where the terrain rose significantly, "I think that's where we were. You can barely see the crack."
+
+She looked, "I see it." And rested her head on his shoulder.
+
+"I know. I'm tired too."
+
+She lifted her head upright. "Is that where we're going?"
+
+Down to the right, a large discoloration from teh surrounding terrain, stood out, though it barely peaked out from behind the opposite hills girth.
+
+"I think so." His eyes scanned the hill they were on and plotted routes toward the objects position. None seemed incredible promising. "Let's keep going. I don't think it's too far." He wasn't sure how they'd get down there, but he led them in that direction anyway.
+
+The object grew as they weaved throughout the pillars lining the deep fall. Certain parts pulled them back from it so they couldn't keep an eye on it, but when they reappeared, it always seemed larger than before.
+
+The vertical face to their left humbly relinquished a few degrees of it's angle, and the routes started to look more possible to Fi as they continued.
+
+In his mind, he concluded if they took the incline at an angle, it might make it more tolerable. Then stopped where his eyes picked out the most seeemingly feasible path yet. Ending right at a lighter section of ground, no doubt a part of the object. Their destination.
+
+"We'll go down here." Holding his arm down at the desired angle. "Do you see it?"
+
+"Yeah I think so." Eta didn't extremely confident. The beasts wouldn't even get within six feet of them.
+
+Without hesitation, Fi said, "I'll start". Then gave a breathe as he lowered down. At first his back was to the incline, but a few slippery steps in told him that was not the ideal position. So he stood parallel to the incline and carefully shuffled his feet.
+
+Eta, having not started yet, watched attentively. "It's alot easier this way." He shouted, exaggerating his direction and catching her gaze.
+
+"Okay", Eta said under her breathe. Gathering confidence like fallen needles from the looming pillars.
+
+She shakily started, as he mentioned. Finding sure steps. The first few sturdy gave her a trickle of confidence. She grasped a pillars tendrils looping out of the groung beside her and rested there, seeing him now reasonably far below, then continued.
+
+Part of the muzzles of the beasts could now be seen, barely past the edge above. They were so low to the ground they could have been mistaken for emerging from the hillside itself.
+
+Eta and Fi found success as they continued. Though Eta slipped a few times here and there.
+
+Stopping for a rest, he yelled "You're doing great!" from below. Then plotted the next section of their descent. A pillar blocked part of his view so that all he could see was a section that appeared to gone. A large chunk missing from the hillside. That forced him to consider descending in the opposite direction. It looked promising, only half of the hillside to go.
+
+"Eta!" He got her attention. "At this pillar, start going down in the direction. It's blocked that way." Motioning behind himself.
+
+She nodded.
+
+He continued his descent feeling the incline start lessen.
+
+The beasts had begun there descent as well. Their four limbs giving them more stability than either of the other trailblazers. After a few steps they had also gained the confidence to move quicker and were quickly catching up with Eta. The latter one gained too much momentum and had to stop quickly, it's back half slipping in the process and one leg dislodging a few small rocks.
+
+The tiny rocks bounced as they fell. And kicked up others, larger ones. Then loosened a sizeable rock. Fi, hearing the sounds above did not think anything of them until he looked up. "Ah!" He yelled, drawing Eta's gaze, while barely dodging the first and the second, but the larger one struck him solidly in his forehead.
+
+"Fi!" She yelled. And sped up her decline, but watched his body flip backward twice sink into the base of a pillar.
+
+Her adrenaline surged, giving her supernatural ability to pick the right footing and she flew to his aid. Nearing the bottom she just ran straight down the rest to the pillar right at the bottom, not even stopping to see anything around.
+
+"Fi! Are you awake! Fi!" He didn't respond. "Fi! Can you hear me." She lifted his head and pulled his hair back off his face. "Please. Can you hear me?!" Liquid swelled in her eyes.
+
+Movement happened below his eyelids. "Fi!" Then a small crack, revealing their humble green. She let out a few quick breathes and a quick laugh, as she saw him coming to.
+
+"What happened?" He asked, clearly struggling to form the words.
+
+"You fell. Hard." She said.
+
+"Did I make it down?"
+
+Another quick laugh. "Yes. Quickly."
+
+He pulled forward with her help, letting out a few groans on the way.
+
+"Does it hurt?" She asked.
+
+"Yeah." Reaching a full sit. "But I'm okay."
+
+His faced the incline and his hands crawled up slightly, bracing his rise until he found his footing. They were only a few feet from the landing below, so he stepped off and wobbled a bit, Eta supporting as much as she could.
+
+The two beasts stood there before them, tongues hanging, energetic as ever.
+
+"How did they do that?" He said.
 
 <Locked on ship scene>
 
@@ -1286,3 +1376,5 @@ The green he had known was gone. Barely a dot on the sphere. The rest was red an
 He hadn't noticed the deep blackness he was now entering. The lights that lit up the night he had seen were now visible, but it wasn't night time. He asked himself if there would still be a night.
 
 The sphere lost it's dimensionality and became a small circle, growing smaller and smaller and smaller. Settling into it's position amongst the other lights. He recognized there was no use, and sank to the floor exhausted.
+
+# on the ship alone
