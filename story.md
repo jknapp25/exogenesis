@@ -1277,7 +1277,7 @@ The blue light was all he could see by now, accept for some natural light stream
 
 "NOOOOOOOO." He could see Eta, emerged from her hiding place, now running at the Harvester. "NOOOOOOOOOO." He hit the glass window with his fist. She got smaller, with everything else around her. The pod. The nearby pillars. The hills.
 
-He pressed his wet face against the cold glass wishing he could slip through it. Threads of moisture stuck to it as he pulled back and rocked forward and back in agony. He knew there was nothing to he could do now. And he had no idea where he was going.
+He pressed his wet face against the cold glass wishing he could slip through it. Threads of moisture stuck to it as he pulled back and rocked forward and back in agony. He knew there was nothing he could do now. And he had no idea where he was going.
 
 The glass went white without any warning and he couldn't see anything. _What happened?_ He looked out but nothing at all could be seen in any direction. For almost a minute he was quiet, hoping something would change. Then, as instantly as it had left, the view reappeared. But now nothing he knew was visible. The world took on a curvature and everything within it, was now reduced to intricate patterns of orange and brown. He could tell they were moving very fast because of the speed at which the world pulled away.
 
@@ -1285,4 +1285,4 @@ The green he had known was gone. Barely a dot on the sphere. The rest was red an
 
 He hadn't noticed the deep blackness he was now entering. The lights that lit up the night he had seen were now visible, but it wasn't night time. He asked himself if there would still be a night.
 
-The sphere lost it's dimensionality and became a small circle, growing smaller and smaller and smaller. Settling into it's position amongst the other lights. He sank to the floor exhausted.
+The sphere lost it's dimensionality and became a small circle, growing smaller and smaller and smaller. Settling into it's position amongst the other lights. He recognized there was no use, and sank to the floor exhausted.
