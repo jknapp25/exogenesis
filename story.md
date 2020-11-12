@@ -1378,3 +1378,39 @@ He hadn't noticed the deep blackness he was now entering. The lights that lit up
 The sphere lost it's dimensionality and became a small circle, growing smaller and smaller and smaller. Settling into it's position amongst the other lights. He recognized there was no use, and sank to the floor exhausted.
 
 # on the ship alone
+
+DSH! He jolted out of his slumber. Looking around his surroundings for a moment he was unable to place himself, and thought he was still in a dream. But the vibration below his supporting hand felt too real, and it quickly brought to memory the story of his entrapment.
+
+His gaze lingered on his hand below as he thought about Eta and what she must be feeling, but feeling the vortex of those feelings suck him down, he snapped back into the present moment. _There must be something I can do._
+
+It this time, he no longer felt any concern about whether or not he was being watched or if anyone else was around. In fact, finding that out sounded more like a good thing to him. Then atleast maybe he could get some answers. Otherwise, the space felt like his now to explore. For better or worse.
+
+He stood, and leaned on the railing, scanning, scanning, scanning. His eyes, now adjusted to the dim blue light. At first glance, it did not seem promising. The walls were a maze of pipes routing down to boxes mounted on the walls of varying sizes. Tall beams ran the full width of the ceiling and touched down on either side of the expanse. The main space consumer was the pillars. The raised metal balcony he stood on didn't seem to contain much other than the room.
+
+The room.
+
+He slowly stepped closer to the glass. It revealed nothing, as he got closer. Even closer, nothing. He stood directly in front of it and still could see nothing at all, accept a dim reflection of himself staring back at him. He moved his hand across it's surface wondering if it was glass at all, or something he had never experienced. He looked his reflection in the eyes, silently asking it for help, but it only deferred to him. It was then, he knew if anything was going to change, it would be him creating that change, and if nothing happened, atleast he would know, for himself, that he tried.
+
+The room got a bit brighter, or was it his imagination?
+
+The steel vines hanging down the walls, _are those important?_ Everything becomes maleable when death is cooking. Or uncertainty of life, for those without the stomach for it.
+
+He started checking everything. Every crevace, every box, every handle, every light, every wall, every beam, every hatch, every hinge, every floor grate.
+
+Floor grate.
+
+Below the balcony, between the pile of pillars and the wall behind, there lied an opening. Not open. But covered, with metal bars. Trickles of moisture seemed to have found there way to it after leaving the pillars. They looked like shiny black worms in the strange bioluminescent light. With no beginning and no end. Always leaving. Where they were going, he wasn't sure, from the sound of the drippage, maybe a few feet down but there was no way of telling. He could fit a few fingers through the openings between parallel bars, but couldn't get a good enough grasp on anything to lift.
+
+He sat back on the hard floor, breathing heavily, more from mental activity than physical exhaustion. _There has to be a way. There has to be a way. A way. A way._ The thought bounced around the walls of his mind like his eyes did the interior of the metal vessel. He reclined slightly to rest against a pillar to his back and noticed shards of them lying around. He grasped one and held it in his hand, feeling its ridges and rough but soft surface. He pressed his thumb into it, assuming it would snap. But it didn't. Slightly surprised he held it in both of his hands and tried the same thing but bending with both hands. It finally snapped. But the effort it took surprised him. He found another, more oddly shaped than the first, nested deeper below the huge pile behind him, and repeated the practice. He stood and looked at the towering pile behind him, then started walking around it, examining it. There were many of these objects jutting off of the pillars at various directions.
+
+He found one at a reasonable height that he could get a good hold of and was able to twist and push til it dislodged itself with a crack. It was gnarled and bent back in a dramatic fashion. Walking back to the grate he was able to slip it through the space between the bars. It even barely bent back up to the point where he could grab it and pull on it to get a good grasp. _Yes!_ He pulled on it with all his strength and was able to lift it but it slipped back out of his grasp. The piece was still protruding from the grate, so he could try again. He took the little piece he was holding earlier and set it by the grate, lifted, and pushed it with his boot slightly, then let go of his lift. _It worked!_ The grate was held slightly open.
+
+His fingers now could get below it and he lifted it til it hung open.
+
+The opening was even darker than the surroundings which made it difficult to tell how deep it actually went. He took the little wedged object and dropped into the whole. To his surprise it only went maybe a few feet down.
+
+Seeing as there was really no other ideas he had, he jumped in. He landed with a small splash. Then crouched and felt the short walls. Two of them were open. He looked down at the one that continued toward the room he had tried to open. He couldn't see anything at all.
+
+He took a breathe and started crawling in it's direction. Moving quickly, his legs and hands wet from the bit of running moisture below him, he reached a wall. It turned right, then left once again. A small amount of blue light shown down about 15 feet in front of him, slightly illuminating the space he was in. Reaching it, he couldn't see much above. He repositioned, and pressed his hands above, lifting intensely til it gave way and started to move. It opened, and stayed like the other. Standing up, he was now in what appeared to be a hallway.
+
+He climbed out and stood. The hall was empty and more clean than than the area he had been. There were no pipes running across the walls or boxes, just blank metal walls. He started in one direction and came to a door. The door had a circular window at about his head level.
