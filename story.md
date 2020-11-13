@@ -1415,4 +1415,39 @@ He took a breathe and started crawling in it's direction. Moving quickly, his le
 
 He sank back down to a seated positon, head hanging. The feelings of defeatedness floated in like the tiny stream he sat in. Gazing in either direction, for a moment, he hoped a ton of water would come crashing through the little tunnel and he would never see the lights turn back on again. He questioned if that might be better than where he was going or not. Thinking back, his experience with everything having to do with these machines had hurt him. The pod kept him from seeing the incredible outside. The Harvester was a tool of mass destruction. The collector separated him from Eta. _If these things are any indication of who made them, I don't want to meet them._ He thought to himself.
 
-The liquid started seaping from his eyes. A spring of emotion burst forth. He felt so incredibly separated from anything worthwhile. Anything that mattered. Why was he placed there? Why was he hear now? Why is he even alive? These thoughts asexual reproduced more thoughts like them.
+The liquid started seaping from his eyes. A spring of emotion burst forth. He felt so incredibly separated from anything worthwhile. Anything that mattered. Why was he placed there? Why was he hear now? Why is he even alive? These thoughts asexually reproduced in his mind leaving him feel so defeated and helpless.
+
+He sat in the quiet for awhile trying to sift through memories with no avail and then crawled back in the direction he had came. There he emerged, and now felt like somehow the space was becoming his own. Maybe he'd never leave. Maybe he'd be here forever. Or until he starved. 
+
+Food.
+
+He had no food. What would he do without any food? 
+
+_There has to be food here somewhere._ He was at a loss for options now though. Even yet, he still explroed the space one more time before calling giving up for the day. His quick rest eatlier hadn't actually leave him with more energy. It was more of an only option. The natural progression. 
+
+The space was so hard and cold, nothing felt like a good spot to curl up in. He ended up in lying with his back to the wall below the window room, atleast feeling sort of save with his back to something. While falling asleep, some white light from the tiny window on the second level seeped through and illuminated a slight mist he hadn't seen, lifting itself off of the pillars, like a final sigh.
+
+He didn't dream for most of the time. His body didn't allow it, with the uncomfort of the situation. But eventually he found peaceful position, with his back flush to the floor and entered into the deeper places of his mind. There memories lurked locked behind metal boxes for so long, now pried open from exhaustion and coming to the end of himself. They showed him pictures like silhouettes of figures behind largely opaque sheets. Shapes of ghosts, or living things. He couldn't tell, though they held his watchful gaze. Moving, shifting, interacting, speaking, running, falling.
+
+He saw himself. Atleast he thought it was himself. It was an imppression, like a hand in wet ground, though seen from the other side. It fit what he knew of his face. But it was smaller, much smaller. It pressed into the veil of light, then pulled back and danced around the other silhouettes, until they disappeared. It twisted back and forth, up and down, checking, checking, checking. But seemingly finding nothing. 
+
+It then was captured by the very veil it hid behind. And lifted on what looked like an endless rope, higher, higher, higher. And then the veil tore, his current self falling from it, into the night lights, floating, floating, floating. A hand reached for him, it was unclear where or who it came from but it reached, outstretcheh far, grasping, grasping, but he didn't see it. It almost caught him.
+
+Then he woke. 
+
+A discomfort below his lower back made him twist to his side. Nothing had changed. But the dream, he could see it still, though it became more opaque in his memory. The feelings re-claimed ground in his soul. Untouched territory explored. New dimensions, andgles, surfaces of himself, revealed and exposed. Zoning out at the concentric circles in the flat end of one of the pillars, he welcomed the feeling. The new layers to himself. He never knew he had layers.
+
+The floor was the most welcoming. Atleast it held him. An idea entered his mind, to check the window above. MAybe there was something different to see. Something encouraging.
+
+He climbed up and stood still for a few moments, reclaiming feeling in his hips, then climbed the stairs and commandeered the portal. It appeared to be perpetual night, in every direction. The lights, looked far more numberous than they had where he was before. They were strewn about the sky haphazardly yet carefully, like someone had accidentally spilled them, but got clever with a few. Yet they held less magic, not looking with Eta. They spoke to him less. He wondered if he and Eta's place had now become one of them to him. Just a tiny light.
+
+_Stay strong Eta._ He whispered to himself, gazing longingly into the infinite. _I'll be back._
+
+Soon enough everything had been explored. Every inch of the place. Every pass, he noticed something new. A few little squishy ropes leaving a metal box. Tiny letters, embedded in it's surface. Different types of latches on the boxes. More arms exuding from the sides of the pillars.
+
+More arms.
+
+He recalled the night before. His experiment with the grate and the tunnel below.
+
+323
+1100+323 = 1423
