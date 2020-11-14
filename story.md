@@ -1473,4 +1473,30 @@ The pillars arm had cracked, so he broke it in two by hitting it on the ground. 
 
 This was discouraging, but it didn't stop him. In fact, it eventually fueled his fire and he continued on. The second box seemed harder, but he got it. This one even more empty than the first. Getting tired and a bit discouraged, he decided to take a break and fell asleep for a short time on the back wall like he had before.
 
-After waking, he decided it worthwhile to try his strategy on a different area, thinking maybe the boxes in the area he was trying might be for similar causes. He tried one on the upper level by the door. By the third try, he was now getting good at it. It opened for him with minimal effort compared to the other tries. This one contained a series of buttons, also with different numbers identifying them. He pressed one and the blue light down by the left side opening went dark. Pressing it again and it came back on. Pressing another one of the buttons did the same for another light in the area. Pressing a third, made the entire space go completely dark. He could barely see his hand on the switch at all. He turned to the space and could only slightly make out the line of the railing due to a bit of light seeping in from the lights through the tiny window.
+After waking, he decided it worthwhile to try his strategy on a different area, thinking maybe the boxes in the area he was trying might be for similar causes. He tried one on the upper level by the door. By the third try, he was now getting good at it. It opened for him with minimal effort compared to the other tries. This one contained a series of buttons, also with different numbers identifying them. He pressed one and the blue light down by the left side opening went dark. Pressing it again and it came back on. Pressing another one of the buttons did the same for another light in the area. Pressing a third, made the entire space go completely dark. He could barely see his hand on the switch at all. He turned to the space and could only slightly make out the line of the railing due to a bit of light seeping in from the lights through the tiny window. He turned and found the button again with his hand and switched it back on bringing his sight back to the space.
+
+These options didn't seem very helpful themselves, but they felt promising for him to potentially find something that might help. Or maybe help him open the door he was trying to.
+
+For hours he continued his working process on boxes at random throughout the space and found few things much more helpful than the buttons for the lights. Eventually he was so tired he gave in and fell asleep again, but slept much longer.
+
+The following day, he found himself very down. He wondered if there was any options. Or anything that would help him make headway, but found little ideas.
+
+He pondered what Eta and the two beasts were doing. If they were okay. If she had found anything or anyone else. If she was safe. The thought of whether or not he would ever see her again kept coming back. And he kept pondering.
+
+Then he wondered if that had ever happened with anyone else. Had there been anyone else that he had never seen again. Had he known anyone else? Then he remembered a scene from the dream he had one night of the room with the lady at the front speaking to them. He recalled others there. _Had there been others? That knew me?_
+
+This became the sole thought he could think of. The soul question on his mind. Was there others?
+
+Maybe the messages on the wall of his pod was someone that knew him. Had he met them before? Were they like him? Were they like Eta? Who was that? What was their goal? Did they want to meet him?
+
+None of it really made sense to him. The whole concept of people elsewhere was just confusing and hard to understand.
+
+He snapped back into where he was. He had a new goal. Get through the door. If he couldn't get through the door then he would be done. He would wait it out. And hopefully it wouldn't take too long for him to get somewhere.
+
+There was a large box oriented slightly different to the ones he had tried on the left of the area. He gave it a try found large metal ropes in it. With a big hook and more rope. He stood for a while trying to think of what they might be fore. Then got another idea. One of the buttons he had tried had moved a pulley above where he was at. It came down all the way to the ground.
+
+He then connexted it to the chain and wrapped it around the pillar.
+
+It looked like the point where it went to on the ceiling had a rail. After a few tries, he found a button that made it move along the rail. He now understood how the mechanism moved. He routed the metal rope through the top pillar on the pilar and spread it out.
+
+Pressing the button, there was tension in them and the pillar started to lift.
