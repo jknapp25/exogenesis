@@ -1454,3 +1454,23 @@ He walked back to stand upon platform that protruded into the space. He leaned o
 The boxes were strangely shaped and therefore must hold different things, he thought. The he realized there was one thing that was similar about all of them. The shiny latch on each of them. He had tried every thing he could think of in terms of opening the latch. Every hand position, every angle, but then it came to him. _What if I can use one of the pillars arms to open it?_
 
 For a moment, he wondered if all this work would be useful. For example, if the Collector was going to land somewhere tomorrow, would it make any difference if he was able to open some boxes? He concluded that it would. There was no telling how long he'd be stuck in there, and who or what would be in control at that point. If he could atleast find out if it's possible to turn this thing around or not, then he'd feel more comfortable. More like he gave it everything he could. For Eta. Every day he's gone, is another day she might be hurt, or starving, or just alone, and that was not acceptable.
+
+With new resolve, he quickly decended the stairs and started looking around the pile of pillars. They seemed to have quite a few tendrils, though many smaller than what he was looking for. Regardless, he was able to extract one in the same way that he had beforem but with a bit more force. With it in hand, he stepped over to the nearest box with a shiny clasp protruding from its exterior. He tried swinging it at the clasp many times. Up, down, left, right, but missed it so many times and chipped the pilllars arm so much that it became worthless and he was only getting tired. Time to try something different.
+
+He retrieved another arm and got back to work.
+
+This time he tried using it like a spear, and hitting it straight on. After a few tries, the same result happened.
+
+He retrieved another arm, this time a bit thicker. He stood in front of the clasp and placed the arm around it in different positions examining if there was maybe something he was missing.
+
+He set it above and tilted the opposite end down so that it rested on a smaller box sitting flush on the interior wall of the harvester. Since the arm was long, it extended now til his side was about at his head level. He held it in place and gave it a little pressure to see if it would slip off of the clasp if he yanked on it. It didn't. _Here goes._ He jumped and pulled his legs in, and hung on.
+
+KCHT. The clasp bent and tore almost all the way through and he dropped on his back with a hard thud. _YES!_ Smiling but also wincing in a bit of pain.
+
+He examined the remaining closure. It wouldn't fully open, but the door of the box would now swing slightly, almost giving him a peak in, if he had a light source he could direct.
+
+The pillars arm had cracked, so he broke it in two by hitting it on the ground. Using the remaining piece, he speared the clasp and it broke free, hanging only by one end. The door could now be opened. There was no way he could know what was inside, nothing gave any clue. He opened it slowly. To his dismay, it was empty. Just a bunch of slots with numerical identifiers that he had no idea what for.
+
+This was discouraging, but it didn't stop him. In fact, it eventually fueled his fire and he continued on. The second box seemed harder, but he got it. This one even more empty than the first. Getting tired and a bit discouraged, he decided to take a break and fell asleep for a short time on the back wall like he had before.
+
+After waking, he decided it worthwhile to try his strategy on a different area, thinking maybe the boxes in the area he was trying might be for similar causes. He tried one on the upper level by the door. By the third try, he was now getting good at it. It opened for him with minimal effort compared to the other tries. This one contained a series of buttons, also with different numbers identifying them. He pressed one and the blue light down by the left side opening went dark. Pressing it again and it came back on. Pressing another one of the buttons did the same for another light in the area. Pressing a third, made the entire space go completely dark. He could barely see his hand on the switch at all. He turned to the space and could only slightly make out the line of the railing due to a bit of light seeping in from the lights through the tiny window.
