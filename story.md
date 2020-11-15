@@ -1495,8 +1495,16 @@ He snapped back into where he was. He had a new goal. Get through the door. If h
 
 There was a large box oriented slightly different to the ones he had tried on the left of the area. He gave it a try found large metal ropes in it. With a big hook and more rope. He stood for a while trying to think of what they might be fore. Then got another idea. One of the buttons he had tried had moved a pulley above where he was at. It came down all the way to the ground.
 
-He then connexted it to the chain and wrapped it around the pillar.
+He then connected it to the chain and wrapped it around the pillar.
 
-It looked like the point where it went to on the ceiling had a rail. After a few tries, he found a button that made it move along the rail. He now understood how the mechanism moved. He routed the metal rope through the top pillar on the pilar and spread it out.
+It looked like the point where it went to on the ceiling had a rail. After a few tries, he found a button that made it move along the rail. He now understood how the mechanism moved. He routed the metal rope through the top pillar on the pile and spread it out.
 
-Pressing the button, there was tension in them and the pillar started to lift.
+Pressing the button, the chains shook and wobbled to a stop. He pressed again and the same. Then he held the button and the slack in the chains disappeared until he heard a loud groan coming from the lying object like it was awakening from it's slumber. The side to his right lifted so that he could see the opposite wall peeking below it. Loud cracks shot through the space like lightning as the second side took off as well. He took his finger off the button to assess what he had achieved.
+
+The 70 foot long pillar looked so peaceful, barely swaying in the air. He walked around it just to get the full site of it, feeling proud of what he had done, though not fully sure what he was going to do with it. He looked at the balcony where the glass room sat aback from the railing by 6 feet or so.
+
+_Ahhhhh._ An idea struck.
+
+He held the last button, raising the massive object by another 10 feet or so until it looked as though it was above the height of the railing.
+
+He breathed in, taking in the potential severity of what he was about to try, then let it out. Eyes fixed on the track above. He tried a button next to the one he had before and the pillar lowered slightly. "Oh!" He corrected the height. Then he tried another button and the apparatus moved along the track above. "Yes!" He yelled. Stopping, the pillar swung from side to side. He then held it and it moved further and further at a speed that felt fast, but he held the button anyway. The pillar hit the railing and bent it down and out of it's path then continued directly into the large glass wall of the room above and it shattered like rain in every direction. "Yeahhhh!" He shouted as loud as he could. Then he tried a button, and it pulled the pillar back out of the room.
