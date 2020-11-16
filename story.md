@@ -1527,6 +1527,28 @@ The endless array of lights, buttons, levers, were mesmerizing. There didn't see
 
 VVVVVVVB. VVVVV...
 
-He looked up and a strange black orb with what looked like a black eye tilted downward until it pointed directly at him. After a few seconds of stairing at it. The loud sound turned off and the hallway lit up revealing its extremely white walls.
+He looked up and a strange black orb with what looked like a black eye tilted downward until it pointed directly at him. After a few seconds of staring at it, the loud sound turned off and the hallway lit up revealing its extremely white walls.
 
-He stepped backward a few feet maintaining eye contact on the orb. It followed him as he stepped backward.
+He stepped backward a few feet maintaining eye contact on the orb. It followed him. He froze, as though locked in the crosshairs and could potentially be rendered to nothing at any moment.
+
+"Who are you." He said. There air was still. Nothing changed in the room. "Who are you!" Louder than before, his words echoed down the halls and came back to him untouched.
+
+Green words appeared on the wall...
+
+"STAY ALIVE"
+
+They looked the same as the words on the walls of his pod. But he had no idea what to make of them. Without moving, he started to consider what they might mean and quickly they disappeared. Then re-appeared...
+
+"13 DAYS"
+
+"13 days until what happens?" The words never changed or left, they just stayed. He concluded that was how many days he had left of this. There must be somewhere that the Collector was going to be in 13 days that would answer some of his questions.
+
+All the doors were open throughout the rest of the ship but none of them opened to anything that seemed useful to him. But atleast now he had a place to sleep.
+
+He went back to the long room of beds and the number 13 re-appeared on the wall across from the side he chose for sleep. Climbing the steps up to a bed at the very top, something about that spot felt more protected. It felt safe, it was much easier to fall sleep now.
+
+The morning came, the wall now said 12. He found it incredibly difficult to leave the bed. His body felt sluggish, and his stomach was crying out to him audibly. He placed his hand on it and could feel the movement within. He was very hungry.
+
+That day he scoured every inch of the ship for some food but found nothing. It was completely empty. Nor could he find any liquid. His mouth felt dusty. He recalled the one place he had found some was coming from the pillars themselves.
+
+He ventured down to the bottom of the large open area, and lowered himself to the floor and slurped what liquid came dripping and pooled off the pillars.
