@@ -1507,4 +1507,26 @@ _Ahhhhh._ An idea struck.
 
 He held the last button, raising the massive object by another 10 feet or so until it looked as though it was above the height of the railing.
 
-He breathed in, taking in the potential severity of what he was about to try, then let it out. Eyes fixed on the track above. He tried a button next to the one he had before and the pillar lowered slightly. "Oh!" He corrected the height. Then he tried another button and the apparatus moved along the track above. "Yes!" He yelled. Stopping, the pillar swung from side to side. He then held it and it moved further and further at a speed that felt fast, but he held the button anyway. The pillar hit the railing and bent it down and out of it's path then continued directly into the large glass wall of the room above and it shattered like rain in every direction. "Yeahhhh!" He shouted as loud as he could. Then he tried a button, and it pulled the pillar back out of the room.
+He breathed in, taking in the potential severity of what he was about to try, then let it out. Eyes fixed on the track above. He tried a button next to the one he had before and the pillar lowered slightly. "Oh!" He corrected the height. Then he tried another button and the apparatus moved along the track above. "Yes!" He yelled. Stopping, the pillar swung from side to side. He then held the button and it moved further and further at a speed that felt fast. The pillar hit the railing and bent it down and out of it's path then continued directly into the large glass wall of the room above and it shattered like rain in every direction. "Yeahhhh!" He shouted as loud as he could, and a loud high pitched sound merged with his voice.
+
+He raced to the upper floor and kicked out the bottom corner of remaining glass, then ducked his head to clear the glass icycles above, and stepped through. The sound cycled in sync withe red lights that illuminated the space every second or so. The space was much different than he had pictured. It was very tall, long and skinny.
+
+Hesistantly, he walked past what looked like a seating area to what looked like endless of rows of beds stacked four high. The beds looked as though they were completely untouched and had been for quite some time. Something about the emptiness of the space, no other beings around, added to the eeriness.
+
+A door replaced where a set of beds would be on his left side. It opened without protest into a hallway. No doors opposite the room that he was in. The hall was very blank, nothing on either of the walls accept what looked to be some display partway down.
+
+He hesitated, half expecting there to be something coming around the corner down the hall when he entered. Nothing did. He walked slowly just in case, now almost use to the loud sound still illuminating the space in intervals. He touched the display but nothing happened.
+
+Nearing the end of the hall, two doors appeared, and what looked like a staircase to his right. He chose the stairs, thinking it potentially the easiest option. They went up a floor and down a floor. He chose down.
+
+At the bottom of the stairs, more hallways shot off in each direction. He took a right and there, a glass door was the first sign of something truly interesting. Behind it, was what looked like an incredible array of colors and lights. They flickered and showed different numbers. They sort of reminded him of his Harvester. _This must be the cockpit._
+
+# meeting the mom over the intercom thing
+
+The endless array of lights, buttons, levers, were mesmerizing. There didn't seem to be a handle to open this door so he couldn't tell how he could even potentially get in.
+
+VVVVVVVB. VVVVV...
+
+He looked up and a strange black orb with what looked like a black eye tilted downward until it pointed directly at him. After a few seconds of stairing at it. The loud sound turned off and the hallway lit up revealing its extremely white walls.
+
+He stepped backward a few feet maintaining eye contact on the orb. It followed him as he stepped backward.
