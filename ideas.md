@@ -25,3 +25,4 @@ Add some humorous scenes throughout
 Maybe drawings will help me not have to describe stuff too much,
 Maybe allowing each chapter to have it's own poetic prose would feel more free and be more interesting.
 Consider how I can make the tech, super cool, but subtle, like the green words on the wall. Or the harvesters controlled by the mind.
+Make him think about Eta and beauty more on the ship
