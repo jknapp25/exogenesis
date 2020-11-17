@@ -1313,7 +1313,7 @@ Movement happened below his eyelids. "Fi!" Then a small crack, revealing their h
 
 Another quick laugh. "Yes. Quickly."
 
-He pulled forward with her help, letting out a few groans on the way.
+He lifted upward with her help, letting out a few groans on the way.
 
 "Does it hurt?" She asked.
 
@@ -1324,6 +1324,20 @@ His faced the incline and his hands crawled up slightly, bracing his rise until 
 The two beasts stood there before them, tongues hanging, energetic as ever.
 
 "How did they do that?" He said.
+
+Both of their focus shifted immediately toward the massive object behind the beasts. There, the enormous beige wall.
+
+They were at it's height. The ground around them merged with it, and it was clear that they could simply walk out onto it.
+
+"What is that?" Eta pointed at the huge structure arising 3 floors at the midpoint of the wall.
+
+"Maybe it's a pod." He held her hand and glanced at her to verify that she was okay with continuing toward it.
+
+It looked as though the flat part they stood on now had somehow been made to meet up with the top of the wall here. They walked to the point where it met and stepped over to a rise that came halfway up them. Past it there was massive open space that looked like it continued down for ages.
+
+Fi picked up a rock and threw it over the side. It felt like it was never going to make a sound until it finally did, far below, echoing back up to them over the smooth surface of the wall. Down at the bottom, a small amount of liquid was flowing like the place they had first sat in.
+
+"What do you think this is?" Eta asked.
 
 <Locked on ship scene>
 
@@ -1551,50 +1565,50 @@ The morning came, the wall now said 12. He found it incredibly difficult to leav
 
 That day he scoured every inch of the ship for some food but found nothing. It was completely empty. Nor could he find any liquid. His mouth felt dusty. He recalled the one place he had found some was coming from the pillars themselves.
 
-He ventured down to the bottom of the large open area, and lowered himself to the floor and slurped what liquid came dripping and pooled off the pillars. It wasn't much but it was better than nothing. And it fixed the chaulkiness in his mouth and throat. He revisited it throughout the day, not sure if he was hungry or thirst, but sipping the black liquid regardless. 
+He ventured down to the bottom of the large open area, and lowered himself to the floor and slurped what liquid came dripping and pooled off the pillars. It wasn't much but it was better than nothing. And it fixed the chaulkiness in his mouth and throat. He revisited it throughout the day, not sure if he was hungry or thirst, but sipping the black liquid regardless.
 
 This continued...for days.
 
 After 3 more days, he lost interest in anything that wasn't edible. He now knew almost every inch of the ship and opened many of the boxes but the energy to open more was long gone.
 
-He started to become one with the darkness, and even preferred the dim blue lights off. A few more days passed with him gazing out the tiny window for less time every day. Losing energy. The concept of a cycle was now disappearing to him. He couldn't tell when one ended and the next began. All that he could go off of was the green number on the wall. But with every passing cycle that felt more and more deceptive. 
+He started to become one with the darkness, and even preferred the dim blue lights off. A few more days passed with him gazing out the tiny window for less time every day. Losing energy. The concept of a cycle was now disappearing to him. He couldn't tell when one ended and the next began. All that he could go off of was the green number on the wall. But with every passing cycle that felt more and more deceptive.
 
-And today felt like 3 cycles. He stood at the window barely there, the emptiness of the outside reflected in how he felt inside, both physically and mentally. Few thoughts went through his mind. They took too much energy and energy. Even leaning down to lick liquid off the floor was getting difficult. When there's nothing to do anything for, nothing becomes everything. 
+And today felt like 3 cycles. He stood at the window barely there, the emptiness of the outside reflected in how he felt inside, both physically and mentally. Few thoughts went through his mind. They took too much energy and energy. Even leaning down to lick liquid off the floor was getting difficult. When there's nothing to do anything for, nothing becomes everything.
 
 He lowered in front of the window, down to the metal floor. His joints were starting to get angry at him for putting pressure on them. Cracking loudly at times. His daily stillness becoming ritual. The floor felt comfortable, everywhere felt comfortable. Much more comfortable than standing, let alone walking. He rested his back onto the hard but soft surface and gazed through the window above.
 
 He slipped into the outside. Flying around the outside of the ship, he could see it. He could see himself on the inside. Stuck. Alone. Then he flew away, further, and further and further, into the void. Where the tiny lights became new spaces. Like his space. Where Eta was. Where the beasts were. Where the glitch was.
 
-One of the lights was a blue world. Liquid everywhere. It rose and fell like mountains, but moved slower. He could walk on it. He could control it. He could run on it. The glitch was there. They walked slowly through arrays of crystal pillars hundreds of times higher than the one on the space that he was on. The glitch always knew where to go. The glitch always new how to find what they needed. Food. Shelter. Enjoyment. 
+One of the lights was a blue world. Liquid everywhere. It rose and fell like mountains, but moved slower. He could walk on it. He could control it. He could run on it. The glitch was there. They walked slowly through arrays of crystal pillars hundreds of times higher than the one on the space that he was on. The glitch always knew where to go. The glitch always new how to find what they needed. Food. Shelter. Enjoyment.
 
 The glitch was all he needed.
 
-They went from world to world, together. 
+They went from world to world, together.
 
-But something changed. The glitches muzzle long and ragged changed. He stared it dead straight and the eyes were not it's eyes. They were more like Eta's but not. It's face changed into one that was almost like his, but smooth like Eta's. 
+But something changed. The glitches muzzle long and ragged changed. He stared it dead straight and the eyes were not it's eyes. They were more like Eta's but not. It's face changed into one that was almost like his, but smooth like Eta's.
 
-This was not Eta. This was not the Glitch. This was not himself. 
+This was not Eta. This was not the Glitch. This was not himself.
 
-"Who are you?" 
+"Who are you?"
 
-The face smiled at him with eyes that he wanted to fall into. They were warm like the light he had walked through with Eta beneath the tall pillars. And inviting. 
+The face smiled at him with eyes that he wanted to fall into. They were warm like the light he had walked through with Eta beneath the tall pillars. And inviting.
 
 "I know you."
 
-The face smiled even bigger. It nodded to him. 
+The face smiled even bigger. It nodded to him.
 
 A rush of sensation swept over his body like needles. This being was everything he had wanted. And somehow everything he had known.
 
-Weaving his way past infinite white lights in the vast blackness, he saw the ship once again. It grew larger and larger as he returned. That tiny window so small. And in it, he saw another figure. The body of the one that owned the face was sitting right where he was now. But it was cradling a very small being in it's arms and rocking it back and forth. The tiny being was held so tightly to it's chest, it was suckling on one of the smooth bags flowing from it's chest. 
+Weaving his way past infinite white lights in the vast blackness, he saw the ship once again. It grew larger and larger as he returned. That tiny window so small. And in it, he saw another figure. The body of the one that owned the face was sitting right where he was now. But it was cradling a very small being in it's arms and rocking it back and forth. The tiny being was held so tightly to it's chest, it was suckling on one of the smooth bags flowing from it's chest.
 
 He then flew through the window and entered the tingy being til he could see through it's eyes. He looked up into the eyes of the larger one, so comforting in every way. He melted into it's grasp, worrying for nothing anymore.
 
-The hunger had left him. The pain was now gone. The floor was more than enough. The Collector was more than enough. Somehow he felt as though he could stay there forever. He and the pillars would make peace and live together in the ship the rest of their days. The product of his destruction. He had come to terms with it. 
+The hunger had left him. The pain was now gone. The floor was more than enough. The Collector was more than enough. Somehow he felt as though he could stay there forever. He and the pillars would make peace and live together in the ship the rest of their days. The product of his destruction. He had come to terms with it.
 
 That face...
 
 Now use to the darkness. He saw the face more than anything. There was nothing else worth looking at here. Why dwell on useless things?
 
-He found a rhythm in the solidarity and the tiredness though the days still seemed to grow longer and longer. 
+He found a rhythm in the solidarity and the tiredness though the days still seemed to grow longer and longer.
 
 One day a noise grew sort of loud. It sounded as though tiny objects were raining upon the outside of the ship. Looking out his window, he could see tiny things move past. Some even the size of his head. They moved so quickly it was impossible to tell what they looked like apart from just their color. It was an incredible site.
