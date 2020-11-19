@@ -1339,6 +1339,22 @@ Fi picked up a rock and threw it over the side. It felt like it was never going 
 
 "What do you think this is?" Eta asked.
 
+"I wish I knew." He said, his eyes climbing the wall, noticing tall cracks rising up in the middle of it. It truly was enormous and it spanned the entire width of the space between the mountains. _Whatever did this must have been powerful._ He thought to himself, curious what creature could have such power to construct something so enormous. And for what reason?
+
+"It's so different from everything else." He said.
+
+"I know. I don't understand why anyone would cut this place in half like this." They walked to the other side where the drop was nearly twice as high and the bottom of the structure flared outward smoothly.
+
+"I'm not sure I want to meet whatever created this."
+
+On the lower side, large chunks of material were missing from the wall and covered in layers of fallen pillars and dirt. But the flowing liquid, though not much of it, found it's way through all of it and continued through.
+
+The gnarled railing connected to the tower in the middle and wrapped around it until it ended at the top, three heights up, where it ended in what looked like it use to be a room with low angled glass walls.
+
+He started in that direction with Eta in hand. She held on tightly.
+
+The stairs drooping and railing torn outward in sections around the structure created a strange eeriness to it. Before starting up them, Fi was sure to
+
 <Locked on ship scene>
 
 He slipped into the bottom left corner of the enormous opening, like a rodent to it's burrow, then crouched and hugged the perimeter wall, hidden behind a large metal box as not to be seen.
