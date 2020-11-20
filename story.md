@@ -1353,7 +1353,87 @@ The gnarled railing connected to the tower in the middle and wrapped around it u
 
 He started in that direction with Eta in hand. She held on tightly.
 
-The stairs drooping and railing torn outward in sections around the structure created a strange eeriness to it. Before starting up them, Fi was sure to
+The stairs drooping and railing torn outward in sections around the structure created a strange eeriness to it. Before starting up them, Fi was sure to examine the area. For what, he didn't know, but he did. Letting go of Eta's hand he stepped around the structure kicking tiny rocks around with his movement.
+
+It was largely the same, until he came to the other side. There, a door. Partway open, partway hanging loose of it's hinges. He stood there staring for a moment, unsure of whether or not they should even enter. But again, his curiosity.
+
+"Eta, come here. I found something."
+
+# Part 14
+
+"What is it?" She got the idea. It's eeriness was self-evident.
+
+"I'm going inside." He said, then stepped forward and reached for the door.
+
+"Me too!" She called, and placed a hand on his back as he pressed the door forward.
+
+The sound, so loud and sharp, it felt like it liquidated their souls. Their adrenaline immediately erupting from the seems of their suits. Neither of them said anything but they knew what each other was feeling. The air told them. It also told them that there was alot more to be found therein.
+
+Some light fell inside the door alongside them and landed upon haphazard items strewn about. The remnants of a couple of tables flipped, bent and broken. More large chunks of debris. Small pieces of broken glass seemingly trodden numerous times. Old yellow sheets of some sort, with scribbles across their surfaces were everywhere. Their color no doubt a sign of age.
+
+It was chaos but profoundly interesting to the two of them. In a look-but-don't-touch sort of way.
+
+Neither of them said anything for an inordinate amount of time, both afraid their speach would travel somewhere far and bring something unsavory back with it.
+
+As eye's adjusted more of the space revealed itself to him, including a staircase behind the hanging door near the opposite wall. Clearly it was the endless abyss that their sounds were entering. Unamused with the room, he started moving toward the steps, highly aware of the sound entering and coming back to him deadlier. He took one step down half expecting to be pulled in the rest of the way.
+
+"Fi..." said Eta, motioning for some sense to return to him, but he just half raised a hand back in her direction for her to stop.
+
+The next step.
+
+Then the next.
+
+The echochamber was completely dark. Zero light lived in this space giving him nothing to go off of but a chaulky, sharp railing that curved down into nothingness.
+
+He disappeared out of her view and became nothing more than strange sounds for a few minutes.
+
+Then arising, the steps became more definitive once again. He reappeared arms loaded with huge yellowis-white sheets. And Eta didn't even question, but started outside thankful for the excuse to exit to re-enter the light.
+
+"What are those?" She asked, as they both walked toward the area in direct light, that wasn't behind the mountains shadow.
+
+Fi dropped them, "I don't know. But there was a huge pile of them, so I imagine they must be important." He started opening one and in his zeal tore a 6 inch section of it right off. "Oh!" He slowed down thereafter, infusing a more delicate touch as he spread them out.
+
+Unraveling one, the inside was far more interesting than the smaller sheets they had stepped on as they entered the space. Lines flowed in every direction and back into themselves and some crossed concentric lines, and shapes appeared in various places throughout it. He unraveled another. The same idea, but completely different. And another, the same.
+
+They both sat down and examined what was before them with close eyes.
+
+"I think I know what these are." Fi exclaimed as his eyes burned holes in the pages. "I remember something like this in my Harvester. The display behind the wheel would show lines lines that told me when the ground got steeper or flatter."
+
+The light disappeared behind the mountain.
+
+"So how does that help us?" Eta asked.
+
+"Well, maybe this shows alot of area and we are somewhere in here. Maybe it could tell us how to get somewhere."
+
+"Like somewhere to sleep?" She said, motioning to the waining light now recoiled behind the mountain.
+
+"Or somewhere to stay permanently. Maybe somewhere in these it might tell us where we are."
+
+For the next hour or so they poured over the pages, and shifted them around, and even discovered that some of them seemed to connect. Without them even noticing, the beasts had wondered off back into the pillars, no doubt in search of more food. When they returned it was clear they hadn't found any.
+
+Growing tired, Eta said, "Let's eat then continue this tomorrow."
+
+"I agree." Said Fi, "I think I'm getting close, but my head is hurting a bit. I think some sleep would probably help."
+
+"Where should we go?"
+
+"Well, here."
+
+"No, I don't know about this place." She said reluctantly.
+
+"I think it will be okay. And we'll have them with us as well." He turned his head toward the beasts still coming in fromt he mountainside. "Up there looks like it could work." Pointing toward the tall structure.
+
+Eta didn't look too interested, but breathed in deeply and agreed.
+
+They called the beasts close and started up the wrapping stairs slowly. Fi led the way, warning her when certain sections creaked more than others. On one side the stairs hung out over the deep fall, "Go slow here", warned Fi, "and get close to the wall." The beasts lingered and then quickly went across to not be there for too long.
+
+The top of the stairs landed on a small flat section then had a large opening. Most of the walls looked as though they had been completely glass and were now mostly gone because of it. Pieces lingered on the floor and were scattered around. The space wrapped around a center island of indentations and old switches and buttons, that looked as though they hadn't been touched in a century. Otherwise the space was largely empty and it didn't take too long for Eta to warm up to the idea of staying there for the night.
+
+They sat down and pulled out ration packs for the two of them and spared one for each of the two beasts as well. After that, the beasts seemed to have lost any reluctance to getting close and lied down right beside each of them. Eta picked tiny items out of their dense, chaotic hair. They welcomed the additional warmth and comfort that the beasts seemed to provide.
+
+words: 1959 Fri, 1980 sun
+
+<>
 
 <Locked on ship scene>
 
