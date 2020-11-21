@@ -1387,17 +1387,17 @@ The echochamber was completely dark. Zero light lived in this space giving him n
 
 He disappeared out of her view and became nothing more than strange sounds for a few minutes.
 
-Then arising, the steps became more definitive once again. He reappeared arms loaded with huge yellowis-white sheets. And Eta didn't even question, but started outside thankful for the excuse to exit to re-enter the light.
+Then arising, the steps became more definitive once again. He reappeared arms loaded with huge yellow-white sheets. And Eta didn't even question, but started outside, thankful for the excuse to exit and re-enter into the light.
 
 "What are those?" She asked, as they both walked toward the area in direct light, that wasn't behind the mountains shadow.
 
-Fi dropped them, "I don't know. But there was a huge pile of them, so I imagine they must be important." He started opening one and in his zeal tore a 6 inch section of it right off. "Oh!" He slowed down thereafter, infusing a more delicate touch as he spread them out.
+Fi dropped them, "I don't know. But there was a huge pile of them, so I think they must be important." He started opening one and in his zeal tore a 6 inch section right off it. "Oh!" He slowed down thereafter, infusing a more delicate touch as he spread them out.
 
-Unraveling one, the inside was far more interesting than the smaller sheets they had stepped on as they entered the space. Lines flowed in every direction and back into themselves and some crossed concentric lines, and shapes appeared in various places throughout it. He unraveled another. The same idea, but completely different. And another, the same.
+Unraveling one, the inside was far more interesting than the smaller sheets they had stepped on as they entered the space. Lines flowed in every direction and back into themselves and some crossed concentric lines, and shapes appeared in various places throughout it. He unraveled another. The same idea, yet completely patterns. And another, the same.
 
 They both sat down and examined what was before them with close eyes.
 
-"I think I know what these are." Fi exclaimed as his eyes burned holes in the pages. "I remember something like this in my Harvester. The display behind the wheel would show lines lines that told me when the ground got steeper or flatter."
+"I think I know what these are." Fi exclaimed as his laser eyes burned holes in the pages. "I remember something like this in the Harvester. The surface in front of me would show lines that showed me when the ground got steeper or flatter."
 
 The light disappeared behind the mountain.
 
@@ -1411,25 +1411,99 @@ The light disappeared behind the mountain.
 
 For the next hour or so they poured over the pages, and shifted them around, and even discovered that some of them seemed to connect. Without them even noticing, the beasts had wondered off back into the pillars, no doubt in search of more food. When they returned it was clear they hadn't found any.
 
-Growing tired, Eta said, "Let's eat then continue this tomorrow."
+Growing tired. Eta said, "Let's eat then continue this tomorrow."
 
-"I agree." Said Fi, "I think I'm getting close, but my head is hurting a bit. I think some sleep would probably help."
+"I agree." Said Fi, "I think I'm getting close to something, but my head is hurting. I think some sleep would help."
 
 "Where should we go?"
 
-"Well, here."
+"Well...here."
 
-"No, I don't know about this place." She said reluctantly.
+"No." She said reluctantly. "I'm not sure about this place."
 
 "I think it will be okay. And we'll have them with us as well." He turned his head toward the beasts still coming in fromt he mountainside. "Up there looks like it could work." Pointing toward the tall structure.
 
 Eta didn't look too interested, but breathed in deeply and agreed.
 
-They called the beasts close and started up the wrapping stairs slowly. Fi led the way, warning her when certain sections creaked more than others. On one side the stairs hung out over the deep fall, "Go slow here", warned Fi, "and get close to the wall." The beasts lingered and then quickly went across to not be there for too long.
+They called the beasts close and started up the wrapping stairs slowly. Fi led the way, warning her when certain sections creaked more than others. On one side the stairs hung out over the deep fall, "Go slow here", warned Fi, "and get close to the wall." The beasts lingered and then darted across to not linger there for too long.
 
-The top of the stairs landed on a small flat section then had a large opening. Most of the walls looked as though they had been completely glass and were now mostly gone because of it. Pieces lingered on the floor and were scattered around. The space wrapped around a center island of indentations and old switches and buttons, that looked as though they hadn't been touched in a century. Otherwise the space was largely empty and it didn't take too long for Eta to warm up to the idea of staying there for the night.
+The top of the stairs landed on a small flat section with a large opening before it. Inside the opening, most of the walls inside the space looked as though they had been glass and were now gone because of it. Pieces lingered on the floor and were scattered around. The entire space wrapped around a center island of indentations, and old switches and buttons that looked as though they hadn't been touched in a century. Otherwise the space was largely empty and it didn't take too long for Eta to warm up to the idea of staying there for the night.
 
 They sat down and pulled out ration packs for the two of them and spared one for each of the two beasts as well. After that, the beasts seemed to have lost any reluctance to getting close and lied down right beside each of them. Eta picked tiny items out of their dense, chaotic hair. They welcomed the additional warmth and comfort that the beasts seemed to provide.
+
+"Do you think we'll ever find others, like us?" She said, still chewing and with her pack in her hands. "Like you and me?"
+
+Fi's face turned perplexed and his lingered on the floor before them. "I - yes, I think so. But maybe not here."
+
+"Like in this this area?"
+
+He shook his head softly, "no, I mean in this space. Everywhere here. Everything that we could find."
+
+"I don't think I know what you mean." she said with a furrowed brow, then squeezed more out of the ration pack into her mouth.
+
+"I look out into the space above. Where those lights are and I can't help but think there is more out there. That something is there. Even the way those lights seem to glow, I just feel like there is more than what we see here."
+
+"Hmm." She appeared deep in thought. "I think the Collector that we saw was getting further upward as it passed us. I didn't see it much further than the pillars, but in that, what you're saying makes sense."
+
+"Do you see that?" He gestured to the vibrant light radiating passed the crest of the mountains lowering themselves in the distance afar off. From where they sat, they could see so much. Mountains loomed on either side creating a sort of safe feeling but off in front of them, there appeared no limitations. Pillars as far as the eye could see. Green, in different shapes revealed creses and cracks in the mountains. They folded one over the other into the distance. Down below, the liquid continued to flow, behaving of it's own accord, moving in it's own direction, left and right, until it disappeared around the base of the left mountain.
+
+"I'm not sure I wwant to leave this place though." Fi said. "If that's what I'd have to do to find others, I'm not sure I would want to."
+
+Eta caught his eyes.
+
+"You're hear. Their here." Placing a hand on the beasts side. "And look at that." Raising his chin forward. "If whoever they are decided to leave this place. Maybe it's for the better." Looking back at Eta. "Maybe it's ours now."
+
+"I like that." She said, placing a hand on top of his.
+
+Fi held Eta as the vibrant distance grew and expanded and shifted in every which direction, revealing colors they had not even known were real. Then they curled up closely surrounded by the hairy beasts lying close, and fell asleep soundly. The warm breeze, in the exposed space welcomed them into a deep rest neither of them had recognized ever experiencing.
+
+# Part 15
+
+Eta felt the softness of the hair, running her fingers through it and enjoying it's warmth, then opened her eyes expecting to see Fi curled up in front of her, but there was nothing. Startled at his disappearance she received a small jolt of energy and looked around the space. One pass, her eyes forming objects out of the sleepy haze, she didn't see anything. Second pass, she found him, disguised at the foot of the room, near a support beam for the structure, his back towards her.
+
+"Fi." She said, rubbing the hard surface off her restless face.
+
+"Hello," he said, not turning back to face her.
+
+Enough focus returned for her to see a sparkling line of light flowing out from in front of him. She stood and walked towards him as his eyes were fixed downward. She approached the edge and the stream became minimal but she saw the last of it disappear into the endless below. Soundless, yet bridging the gap between them and the surreal outter environment.
+
+The corridor they were situated in looked different now as the light painted the mountains differently than the night before. There appeared to be a freshness in the air that licked the steep green walls golden anew.
+
+"How was your sleep?" Fi asked.
+
+"Very good, I think it was the best sleep I have had in a while. Though I'm starting to forget what it was like before a few days ago."
+
+"Yeah? Me too." Fi replied. "I mean I remember, but it feels like one day. Copied. Then copied."
+
+"Exactly." Eta smiled. "Let's continue what we were doing yesterday."
+
+"Yes!" Fi grabbed the ration back near one of the beasts doing an interesting pose with its front arms stretched far out infront of it and it's back side much higher. The other one was already sitting alone on the landing at the top of the stairs, scanning the mountainside. Fi and Eta slipped past it and it followed with its' companion.
+
+The wrapped around the tower and their sheets were still in site. Strewn out across the wide top of the wall. He spread them out, and then sat back in the warm sun, his face tilted upward and eyes closed to grasp as much of the oncoming light as possible. "What was it like for you when you were harvesting the pillars?" He asked.
+
+"Probably no different than it was for you." She replied.
+
+"So you did the same thing every day. Did the outside ever glitch? Like did anything ever appear?" He asked.
+
+"Appear from where?"
+
+"From around you. When you were at the pillars."
+
+"Well...no. Not that I remember. But it wasn't like it is now. I couldn't see." She said.
+
+"I thought that happened when I backed my Harvester onto yours." He said looking confused.
+
+"No that's how it always was. When I entered the HArvester every day and sat down, then I would place an apparatus on my head. It allowed me to see. But it was very different than I see now."
+
+"How so?" He asked.
+
+"It was like I could just see outlines. Just the shapes of things. It was all I knew, but it's much easier now to know about everything. I also didn't see anything in the shades I do now. There's an intemnsity to everything that I couldn't see."
+
+Fi appeared very interested but also confused at what she was saying. "So how did you find me?"
+
+"Well, I guess I did notice that." She shifted her position on the hard ground. "It was different than the usual movement that I notice around and throughout the pillars. It was a blur behind the pillars. A large shadow. There was no shape like most things I had seen, but there was something unusual about how you moved. I could tell it was different. I had to follow. I stayed far though, not sure what might happen if I approached. At one point I was fairly close, maybe the distance of two or so harvesters, but still you just appeared a large blur."
+
+"Huh." Fi pondered.
 
 words: 1959 Fri, 1980 sun
 
@@ -1708,3 +1782,7 @@ Now use to the darkness. He saw the face more than anything. There was nothing e
 He found a rhythm in the solidarity and the tiredness though the days still seemed to grow longer and longer.
 
 One day a noise grew sort of loud. It sounded as though tiny objects were raining upon the outside of the ship. Looking out his window, he could see tiny things move past. Some even the size of his head. They moved so quickly it was impossible to tell what they looked like apart from just their color. It was an incredible site.
+
+---
+
+You are the explorer in the story!
