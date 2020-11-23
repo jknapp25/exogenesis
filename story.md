@@ -1479,33 +1479,95 @@ The corridor they were situated in looked different now as the light painted the
 
 "Yes!" Fi grabbed the ration back near one of the beasts doing an interesting pose with its front arms stretched far out infront of it and it's back side much higher. The other one was already sitting alone on the landing at the top of the stairs, scanning the mountainside. Fi and Eta slipped past it and it followed with its' companion.
 
-The wrapped around the tower and their sheets were still in site. Strewn out across the wide top of the wall. He spread them out, and then sat back in the warm sun, his face tilted upward and eyes closed to grasp as much of the oncoming light as possible. "What was it like for you when you were harvesting the pillars?" He asked.
+They descended the staircase wrapping the tower and their sheets were still in site. Strewn out across the wide top of the wall. He spread them out again and re-ordered them to what he could remember, and then sat back in the warm sun. His face tilted upward and eyes closed to grasp as much of the oncoming light as possible. "What was it like for you when you were harvesting the pillars?" He asked.
 
 "Probably no different than it was for you." She replied.
 
-"So you did the same thing every day. Did the outside ever glitch? Like did anything ever appear?" He asked.
+"So you did the same thing every day. Did you ever notice anything strange? Like did anything ever appear?" He asked.
 
 "Appear from where?"
 
-"From around you. When you were at the pillars."
+"From around you. When you were harvesting."
 
 "Well...no. Not that I remember. But it wasn't like it is now. I couldn't see." She said.
 
-"I thought that happened when I backed my Harvester onto yours." He said looking confused.
+"I thought you lost your site when I backed my Harvester onto yours." He said looking confused.
 
-"No that's how it always was. When I entered the HArvester every day and sat down, then I would place an apparatus on my head. It allowed me to see. But it was very different than I see now."
+"No, that's how it always was. When I entered the Harvester every day and sat down, I couldn't see until I placed a thing on my head. It allowed me to see. But it was very different than I see now."
 
 "How so?" He asked.
 
-"It was like I could just see outlines. Just the shapes of things. It was all I knew, but it's much easier now to know about everything. I also didn't see anything in the shades I do now. There's an intemnsity to everything that I couldn't see."
+"It was like I could just see outlines. Just the shapes of things. It was all I knew, but it's much easier now to know about everything. I also didn't see anything in the shades I do now. There's an intensity to everything that I couldn't see."
 
 Fi appeared very interested but also confused at what she was saying. "So how did you find me?"
 
-"Well, I guess I did notice that." She shifted her position on the hard ground. "It was different than the usual movement that I notice around and throughout the pillars. It was a blur behind the pillars. A large shadow. There was no shape like most things I had seen, but there was something unusual about how you moved. I could tell it was different. I had to follow. I stayed far though, not sure what might happen if I approached. At one point I was fairly close, maybe the distance of two or so harvesters, but still you just appeared a large blur."
+"Well, I guess I did notice that." She shifted her position on the hard ground. "You know how the pillars sort of move slightly on their own? It was different than that. It was like a blur behind the pillars. A large shadow. There was no shape like everything else, and it was unusual how it moved. I could tell it was different. I had to follow. I stayed far though, not sure what might happen if I approached. At one point I was fairly close, maybe the distance of two or so harvesters, but still you just appeared a large blur."
 
-"Huh." Fi pondered.
+-
 
-words: 1959 Fri, 1980 sun
+"Huh." Fi pondered. "So when you regained your site, was it the first time that you could see like this?"
+
+"I think so." Eta said looking back into the blurred history in her mind. "Well... Then again, it doesn't feel new. I mean this place feels very new, but seeing things this way doesn't. It's like somewhere, somehow I use to see this way. But I can't remember the things that I saw. I just remember a feeling." Fi could relate, but didn't have any words to expand on what she was saying. "Let's find something." She said, shifting her attention back to the array of sheets spread about.
+
+"So I think it's possible we might be somewhere in this area." His finger hovered over a page and continued onto another, following the contours between two oblique shapes that trailed down in one general direction. "I think that was where we started, up there." Pointing at the sheet and up to the mountain where they had stayed with the beasts. "So down here somewhere."
+
+"What about here?" Eta said, face close to the pages studying the details of a straight section between two drastic bends.
+
+"Where is the wall?" 
+
+"Maybe there isn't a wall. Maybe the reason why it looks so different than everything else is because it is. What if these markings don't show things like that."
+
+"I guess that makes sense," he said, "so you think we might be somewhere around this area?" Eta watched where he pointed, then jumped to her feet and spun around, observing the surroundings. Then she walked to the edge of the wall on the upper side and gauged the general distance they were from the large bend in the mountain, then she ran to the other side and did the same, then sat back down near the sheets. Moving her hair back on her head out of the way, "Right here. Do you see these curves going inward? I think that is this." Her arm turned back and jutted toward the indentation in the side of the mountain at the other end of the wall.
+
+"Ahhh." Fi stood up to get the full view of the sheets and observe the terrain to make a proper match in his mind. "Yeah I think that makes sense!" The rest of the large pages started to come together like broken pieces of glass as they shifted them, though a few were still unclear if they even fit at all.
+
+"What do you think this is?" Fi pointed out a strange area a couple sheets down from the one that showed where they were. Across it was a jagged line with nothing after it. Not even any notes or markings or anything.
+
+"Maybe it just ends there? I don't know."
+
+Fi didn't have any good ideas either. "Whatever it is, I'd like to find out. But I think we should go see what this is first. I think it's much closer." A couple of circles looked not far from where they deemed they were. "Shall we find it?"
+
+"Let's do it." Eta replied.
+
+In no time they had wrapped the sheets all up together into one bundle and stuffed them in the ration pack, though they sticked out quite a bit. Eta called the beasts back closer to them and they started on their way. 
+
+Where the wall met the mountainside, a flat section trailed off to the right back up toward where they had come from and it also trailed off to the left. They took the left thinking they would head down and then cut inward to where the circles looked like they might be. 
+
+"I think it might take us all cycle to get there depending on how difficult it is." Said Eta.
+
+"I think so too."
+
+The flat section eventually grew less wide and led them back into some pillars. They consistently were traveling downward and looking back it was clear they had already lost quite a bit of height from where they were on the wall. But eventually the wall disappeared as the mountain swallowed it from their view.
+
+They approached the height at which the liquid now flowed at the base point where the two heights on either side of them bowed low and touched. The beasts disappeared off in front of them behind pillars for a while until they found them sitting on the edge of a large flat rock right in front of where some liquid landed.
+
+Fi stopped in his tracks and froze in awe of the site. The liquid flowed faster and had grown in size at this point. Large rocks layed upon each other in spectacular fashion and the liquid traveled around them at multiple points. Many huge pillars also lied across the liquid and some had even fallen in to it, diverting it's flow even moreso. Where the beasts sat, the liquid was more still and looked to Fi as though it would be a great place to take a break.
+
+The chaulkiness had returned to his mouth and after dropping the pack, he lowered himself by the beasts and drank from the flow as well. Eta followed suit, and cupped some into her hands to drink as well.
+
+It ran down their throats smoothly and they resonated over their need to drink more of the liquid as they continued. "Can we bring some of it with us?" Eta asked.
+
+"I don't know how we would do that, but I don't think the circles are far from where this flows. If we keep following this, we'll cut right and I think we'll find them."
+
+After drinking his fill, he went back up to his pack and pulled the outermost sheet, the one that showed where they had been and flattened it against the warm rock. He relocated them, "I think we might be a bit further than I had thought."
+
+"Well let's keep going then." Eta said.
+
+The trek had grown more difficult as they continued and fallen pillars, large rocks, loose ground were all now becoming very common challenges to overcome. The beasts didn't seem to have a problem fairing, but the two did. 
+
+Fi though, didn't think about it too much as he was finding quite a bit of enjoyment in what he was seeing. The flicker of the light across the liquid made it feel so alive to him, and the soft ground at it's edge was very satisfying to trudge across. Leaping from rock to rock was also quite an entertaining thing to do. 
+
+He grew to like this place more and more, not just what he was currently seeing, but everything he had discovered outside of the life he had known for so long. This place felt dynamic and alive. It felt like there was so much to discover and everything was different. Everything was new. 
+
+"Fi, do you see that?" He stopped and looked back at Eta. She was pointing high into the air directly above them.
+
+Something almost too far too see was moving across the blueness. It turned smoothly in different directions and started too drop to become more visible. _What is that?_ He thought, it was strange and unlike anything he had ever seen yet. It's black shape spiraled slowly, banked and moved in many directions. As it got closer, it felt as thoiugh it was floating in the air like the Collector they had seen was. But this looked as though it might be another creature.
+
+It swooped down and headed in their direction and then landed on a pillar that jutted out over the swift moving liquid.
+
+
+
+words: 1785 mon, 1980 tue
 
 <>
 

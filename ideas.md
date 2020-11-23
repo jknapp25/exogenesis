@@ -4,6 +4,7 @@ When her mother extracts his memories and hacks the screens to play them, she hi
 The memories of previous harvester kids get's passed on to the next after they die
 
 Second pass:
+Start by naming all of the scenes before shifting them
 When I'm doing passes with these ideas ^ pick a book that I think does these things well and start reading it before and during
 Re-call the grittiness of the original vision. He was basically called out of deadly, hypnotizing comfort into a deadly adventure, requiring EVERYTHING of him. But the beauty shines through regardless.
 Do character profiling: what are each characters motivations?
@@ -30,3 +31,4 @@ Make him think about Eta and beauty more on the ship
 Give them very prophetic names
 Consider getting rid of personal pronouns
 When doing a dialogue pass, ask if I can sit next to friends and listen to them talk for awhile
+After the story is over, sit the characters down in a room and have a mental conversation with them.
