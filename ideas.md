@@ -32,3 +32,5 @@ Give them very prophetic names
 Consider getting rid of personal pronouns
 When doing a dialogue pass, ask if I can sit next to friends and listen to them talk for awhile
 After the story is over, sit the characters down in a room and have a mental conversation with them.
+Get more detailed about the plants, look up plants in oregon
+Consider what season they are in

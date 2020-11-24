@@ -1513,7 +1513,7 @@ Fi appeared very interested but also confused at what she was saying. "So how di
 
 "What about here?" Eta said, face close to the pages studying the details of a straight section between two drastic bends.
 
-"Where is the wall?" 
+"Where is the wall?"
 
 "Maybe there isn't a wall. Maybe the reason why it looks so different than everything else is because it is. What if these markings don't show things like that."
 
@@ -1529,9 +1529,9 @@ Fi didn't have any good ideas either. "Whatever it is, I'd like to find out. But
 
 "Let's do it." Eta replied.
 
-In no time they had wrapped the sheets all up together into one bundle and stuffed them in the ration pack, though they sticked out quite a bit. Eta called the beasts back closer to them and they started on their way. 
+In no time they had wrapped the sheets all up together into one bundle and stuffed them in the ration pack, though they sticked out quite a bit. Eta called the beasts back closer to them and they started on their way.
 
-Where the wall met the mountainside, a flat section trailed off to the right back up toward where they had come from and it also trailed off to the left. They took the left thinking they would head down and then cut inward to where the circles looked like they might be. 
+Where the wall met the mountainside, a flat section trailed off to the right back up toward where they had come from and it also trailed off to the left. They took the left thinking they would head down and then cut inward to where the circles looked like they might be.
 
 "I think it might take us all cycle to get there depending on how difficult it is." Said Eta.
 
@@ -1553,21 +1553,73 @@ After drinking his fill, he went back up to his pack and pulled the outermost sh
 
 "Well let's keep going then." Eta said.
 
-The trek had grown more difficult as they continued and fallen pillars, large rocks, loose ground were all now becoming very common challenges to overcome. The beasts didn't seem to have a problem fairing, but the two did. 
+The trek had grown more difficult as they continued and fallen pillars, large rocks, loose ground were all now becoming very common challenges to overcome. The beasts didn't seem to have a problem fairing, but the two did.
 
-Fi though, didn't think about it too much as he was finding quite a bit of enjoyment in what he was seeing. The flicker of the light across the liquid made it feel so alive to him, and the soft ground at it's edge was very satisfying to trudge across. Leaping from rock to rock was also quite an entertaining thing to do. 
+Fi though, didn't think about it too much as he was finding quite a bit of enjoyment in what he was seeing. The flicker of the light across the liquid made it feel so alive to him, and the soft ground at it's edge was very satisfying to trudge across. Leaping from rock to rock was also quite an entertaining thing to do.
 
-He grew to like this place more and more, not just what he was currently seeing, but everything he had discovered outside of the life he had known for so long. This place felt dynamic and alive. It felt like there was so much to discover and everything was different. Everything was new. 
+He grew to like this place more and more, not just what he was currently seeing, but everything he had discovered outside of the life he had known for so long. This place felt dynamic and alive. It felt like there was so much to discover and everything was different. Everything was new.
 
 "Fi, do you see that?" He stopped and looked back at Eta. She was pointing high into the air directly above them.
 
-Something almost too far too see was moving across the blueness. It turned smoothly in different directions and started too drop to become more visible. _What is that?_ He thought, it was strange and unlike anything he had ever seen yet. It's black shape spiraled slowly, banked and moved in many directions. As it got closer, it felt as thoiugh it was floating in the air like the Collector they had seen was. But this looked as though it might be another creature.
+Something almost too far too see was moving across the blueness. It turned smoothly in different directions and started to drop into view. _What is that?_ He thought, it was strange and unlike anything he had ever seen yet. It's black shape spiraled slowly, banked and moved in many directions. As it got closer, it felt as though it was floating in the air like the Collector they had seen. But this looked as though it might be another creature.
 
 It swooped down and headed in their direction and then landed on a pillar that jutted out over the swift moving liquid.
 
+It was clearly another creature. Neither of them could take their eyes off the being. It's movements had been so smooth and fast that it was unclear how something could do that at all. It sat so still on the pillar that it's body looked frozen in time, but it's head twisted in different directions intermittently.
 
+"I wonder what it's looking for." Eta asked.
 
-words: 1785 mon, 1980 tue
+"Probably what every being here seems to be looking for. Food." Fi replied with a whisper, worrying any movement whatsoever might make the thing disappear as it had came.
+
+The colors and patterns on it's body were fascinating. It was hard for them to take their eyes off of it.
+
+They moved slowly down the bank of the swift liquid to bring it into better view, then without warning it lept off of it's perch across the surface and came to the side they were on. Now it was even more in view, though too high above head to get within reach. It was clearly curious about them too and kept returning it's sidelong gaze at them as it twisted around.
+
+Then something else caught it's attention. It flared it's wings out and stepped even further out onto the pillars tendril it sat on and gazed attentively down into the liquid. It followed the flow and got to the very edge as it's head slowly followed immediately downward, and then it fell down directly into the liquid, splitting it's crystalline surface and remaining therein for almost 3 seconds. Then it emerged with a commotion and took off out of the liquid the same way it had come, but with something in it's mouth. It was unclear what.
+
+"What was that?" Said Eta.
+
+"Wow," replied Fi, "I have no idea. But this place is getting more insane every minute."
+
+The eeriness that Fi had experienced when gazing over the emptiness that he had created with his Harvester was starting to dissippate inside of him. This place appeared more and more alive as he went. It's secrets were slowly revealing themselves in bite-sized pieces. It started to feel as though the destruction he had brought to it, might be less destructive than he had imagined. Though clearly quite obvious.
+
+"Let's take a look at where we are." Said Fi.
+
+He pulled the sheets out once again and spread them across the rocks. Eta located their position quickly. "You're getting good at this." Fi mentioned, bringing a smile to her face. "Looks like wer're not too far. I think if we start cutting inward here, we'll be on track." The greenery in from the flowing liquid at this point was quite different than what they had seen before. It grew much lower and was much more impenetrable than the pillars they had seen. It didn't look as though it emerged from one clear source like most pillars, but instead created walls of tendrils with no clear starting point but below their greenness.
+
+They ate some of a couple of ration packs and continued in the only direction that looked possible. They had to climb some large staggered rocks to get past parts of the greenm, which turned out to be more vicious than it appeared from afar, grabbing at their suits with sharp, tight grasps and painfully drawing the red liquid from below their skin in verious spots.
+
+Behind the lower greenness, pillars they were more use to with low lying varieties were the normal. It was a much less steep incline than they had experienced before but it appeared quite gradual steady for awhile. The beasts seemed unphased at the challenge, though it rendered Fi and Eta to their knees a few times. Grabbing hold of large looping tendrils made for easier emergence at times, and after awhile it finally appeared as though they were at the crest of the incline.
+
+"I think we're close," Fi said, breathing heavily. "Are you okay?"
+
+"I'm tired, but I'm doing well," she replied. "It doesn't look like this is all of it though." She pointed out as it looked as the crest may have falsely looked like the top.
+
+"Agh, you're right." They sat on a flat section before scaling the next, looking at the surroundings and receiving what rejuvenation it provided them just with it's presence. Fi found it's chaos to be comforting in a way he couldn't begin to describe. The suttle movements in the alien pillars were mesmerizing.
+
+They continued their trek, ascending at a stable but slow pace. Eventually they made it to the top, where the two beasts looked as though they had been waiting all along. Not far off, through the pillars there was clearly something different. Something unlike the surrounding environment.
+
+They started in it's direction below new types of surroundings and new varieties of pillars, many much smaller and more bulbous, but just as interesting in their differences.
+
+The green below also felt much different as they got closer, it was more intense and squishier below them. They stepped up onto a large dark gray flat surface surrounded by a few large steps, where when they stood above, they could see it was circular and in the middle some sort of figure made of what looked like the same dark gray material loomed above. Though a large piece of it was now laying below.
+
+Fi approached, attentively, "it looks sort of like you." He said.
+
+"Really?" Eta circled the shape observing it's strange pose, angled and holding some sort of fabric. "Is that it's arm?"
+
+"I think so, replied fi." Looking at the fallen piece, something else in it's hand. "There was clearly something like us here."
+
+Passing the strange object, they scaled another few steps and stood below an open wall of sorts that created a semi-circle of dark gray around the area they had stood. Atop this spot, they could see much below.
+
+They stood a body length or two above, what looked like remnants of structures of varying materials and colors and strange objects, separated by rows of nothing in a clearly linear pattern. It looked as though there were hundreds of them about, many on the far side leveled down to nothing, where green now grew everywhere.
+
+"Wow, this must be it. What a place. Some of these structures kind of remind me of the tower we stayed in, and even our pods sort of."
+
+Slowly taking it all in, Fi replied, "I wonder if these all use to be pods of sorts. Or places where one could get things. I wonder what kinds of things."
+
+"I'm sure we'll find out," said Eta.
+
+words: 1781 mon, 1980 tue
 
 <>
 
