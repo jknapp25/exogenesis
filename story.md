@@ -1503,8 +1503,6 @@ Fi appeared very interested but also confused at what she was saying. "So how di
 
 "Well, I guess I did notice that." She shifted her position on the hard ground. "You know how the pillars sort of move slightly on their own? It was different than that. It was like a blur behind the pillars. A large shadow. There was no shape like everything else, and it was unusual how it moved. I could tell it was different. I had to follow. I stayed far though, not sure what might happen if I approached. At one point I was fairly close, maybe the distance of two or so harvesters, but still you just appeared a large blur."
 
--
-
 "Huh." Fi pondered. "So when you regained your site, was it the first time that you could see like this?"
 
 "I think so." Eta said looking back into the blurred history in her mind. "Well... Then again, it doesn't feel new. I mean this place feels very new, but seeing things this way doesn't. It's like somewhere, somehow I use to see this way. But I can't remember the things that I saw. I just remember a feeling." Fi could relate, but didn't have any words to expand on what she was saying. "Let's find something." She said, shifting her attention back to the array of sheets spread about.
@@ -1619,7 +1617,78 @@ Slowly taking it all in, Fi replied, "I wonder if these all use to be pods of so
 
 "I'm sure we'll find out," said Eta.
 
-words: 1781 mon, 1980 tue
+# Part 16
+
+Ideas:
+
+- examine town, find relics
+- their curiousity grows about who people were
+- see collector again
+- Fi runs to Collector
+
+---
+
+From that point, their shadows nearly licked the delapidated perimeter of the collection of old structures below. At the base of them, a thick black substance nearly indistinguishable from rock peaked throough overgrown greenness weaving itself in, out, and around it's cracks.
+
+Stepping down the incline, the surreal environment started to become real to Fi. Large metal objects of strange shapes, jutted out of the chaos in many places, entire corners of structures knelt to the ground, while the other parts still looked as though they stood, just barely. Pillars, of peculiar shapes and sizes towered over different sections, one even looked as though it had lifted a structure nearly off the ground. Naked pillars, with tiny arms held ropes that moved about in different directions and collapsed to the ground here and there.
+
+"What happened here?" Exclaimed Fi.
+
+Eta gave a quick laugh beneath her breathe. "Time."
+
+They stepped over large chunks of the frequent dark material, that crumbled into tiny pieces in other areas, and Fi pressed aside a large green, that blocked their entry to what looked like the main path, and Eta slipped past. The path was wide and unpredictable in how to maneauver it with how much green now was consuming it, but that was not what interested them most. Their eyes were fixed on the strange structures that looked like at once had been in perfect alignment, but now couldn't tell a line from a circle.
+
+The structure to their right, was now nearly impossible to enter, so they moved toward the one on their left.
+
+A deck that looked like it had protruded from high up on the face of the structure now mostly lie on the ground in front of the opening. It's facade was made up stacked blocks, many of which were missing from the upper left corner of it, and were probably eaten by the chest hight greenery below.
+
+"I want to go inside." Fi said.
+
+"I do too." Replied Eta firmly.
+
+"Let's go," Fi smiled, appreciating his companions curiousity.
+
+It wasn't exactly clear how to get to the arched entryway, so it took a bit of maneauvering and trying out footing to get close. Large pieces of pillars made for good footing at different points.
+
+Once at the entry, Fi placed his hand on it's rough surface, then stepped through. For the opening section, the floor was largely free of obstructions, but further in it was clear the space became more obtrusive. There was a long hall, as tall as the structure looked from the outside, and two openings to other rooms on either side. The walls on the inside looked to be a of different materials, a mixture, not as strong as what the outside was.
+
+They could see into the left room, it looked as though it had a long brown wall no taller than chest height offset from the wall from a few feet. It was in surprisingly in tact, and even looked to have shapes across it's outer surface.
+
+"Wow, do you see that?" Eta pointed out the patterns, "what is on the wall?" There looked to be a few crystalline shelves spread out at various heights on the wall, and even crystalline containers sat back closer to the wall. Fi reached up over the low wall and grabbed one, holding it in his hand. It's body hard lifted markings across it. He rubbed the object across his suit arm to remove the thick dust obscuring it.
+
+"Jack Dan-eye-els." It meant nothing to him, but it's shape was quite impressive. He set it back on the surface of the wall and continued. The room was long and thin, largely occupied by the wall and the contents it protected. Around the wall, chairs and tables, flipped and broken were strewn about. Opposite the wall where the crystalline shelves were, was a much more blank wall, accept for one rectangular item placed roughly above head level on the wall itself. Fi walked toward it and blew hard at it's surface releasing millions of tiny specks into the air.
+
+"Come here!" He said, eyes fixed on the object. Eta came quickly.
+
+"Whaaa..." Eta uttered.
+
+The yellowed sheet revealed a hundred near disappeared shapes that looked like them. Some of which wore circular items on their heads, some had strange objects balanced against their leg. Toward the right an object sort of like one of the ones overcome by greenery outside was in the background.
+
+"They kind of look like us!" Fi said, in utter awe. Inside him, a pang for something disappeared and a warm feeling replaced it.
+
+"They do! They really do!" The depiction in all of it's confusing differences made sense in a way.
+
+Fi's eyes's moved toward the floor where other rectangles with ornate borders were also lying face down, crystals scattered across the floor.
+
+Again, another depiction, this one of only two of them. One of them, with a large circular object on it's head, was holding the other in it's arms with a big smile. It immediately brought him back to when he had carried Eta through the pillars after he had found her. There were more like this one and the other that they found and showed to each other. Many of the depictions gave Fi a very good feeling.
+
+They backed out of the space into the other room where the two beasts were now examining every inch with their muzzles lowered to the floor. The room had a large square indentation where it looked as though a tube continued upward. Something about the beasts presence in this room brought back images into his mind. A place with a very similar feeling, that he had once entered. He saw the glitch nested in one of it's rooms with three of tiny ones. He kept this thought to himself, a difficult memory to swallow, something about the glitch would always linger inside him.
+
+They explored the rooms of the building that were accessible to them but didn't venture up the steep staircase in the hall since it was clearly barely holding on.
+
+"Should we leave?"
+
+"Yes, I think I'm done." Fi said and slowly turned back outward calling the beasts to follow suit. They emerged, to the light starting to become that warm golden feeling that he remembered. "Do you want to go into another?"
+
+"Yeah I think so, I wonder if we could stay in one of them." Eta said.
+
+Fi was surprised seeing as few of them looked habitable.
+
+"Let's see what we find." He said.
+
+They started back down the path, the structures like
+
+words: 1781 tue, 1980 wed
 
 <>
 
