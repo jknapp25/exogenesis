@@ -1672,25 +1672,85 @@ Fi's eyes's moved toward the floor where other rectangles with ornate borders we
 
 Again, another depiction, this one of only two of them. One of them, with a large circular object on it's head, was holding the other in it's arms with a big smile. It immediately brought him back to when he had carried Eta through the pillars after he had found her. There were more like this one and the other that they found and showed to each other. Many of the depictions gave Fi a very good feeling.
 
-They backed out of the space into the other room where the two beasts were now examining every inch with their muzzles lowered to the floor. The room had a large square indentation where it looked as though a tube continued upward. Something about the beasts presence in this room brought back images into his mind. A place with a very similar feeling, that he had once entered. He saw the glitch nested in one of it's rooms with three of tiny ones. He kept this thought to himself, a difficult memory to swallow, something about the glitch would always linger inside him.
+They backed out of the space into the other room where the two beasts were now examining every inch with their muzzles lowered to the floor. The room had a large square indentation where it looked as though a tube continued upward. Something about the beasts presence in this room brought back images into his mind. A place with a very similar feeling, that he had once entered. He saw the glitch nested in one of it's rooms with three tiny versions of itself. He kept this thought to himself, a difficult memory to swallow, something about the glitch would always linger inside him.
 
 They explored the rooms of the building that were accessible to them but didn't venture up the steep staircase in the hall since it was clearly barely holding on.
 
 "Should we leave?"
 
-"Yes, I think I'm done." Fi said and slowly turned back outward calling the beasts to follow suit. They emerged, to the light starting to become that warm golden feeling that he remembered. "Do you want to go into another?"
+"Yes, I think I'm done." Fi said and slowly turned back outward calling the beasts to follow suit. They emerged, to the light starting to evolve into that warm golden feeling that he remembered. "Do you want to go into another?"
 
 "Yeah I think so, I wonder if we could stay in one of them." Eta said.
 
-Fi was surprised seeing as few of them looked habitable.
+Fi was surprised by the thought, seeing as few of them even looked habitable.
 
 "Let's see what we find." He said.
 
-They started back down the path, the structures like
+They started back down the overgrown path, if you could even call it that. Dodging objects and large greenness pulling at their suits and scratching their hands could potentially earn another title like bushwacking, etc. Each structure they slowly meandered past retained a character of it's own. Some had large columns with intricate curvature holding up other floors adorned with metal decks with patterns and depictions that Fi could have stared at for hours. Others jutted out further into the pathway like someone forgot to plug them in all the way. Others, largely tall, reminded him more of his pod, with much less happening. They all were in some state of decay and disarray.
 
-words: 1781 tue, 1980 wed
+"There's one thing that I've learned about this place, the greenness appears to always win." Said Fi.
 
-<>
+"It is everywhere huh?" Eta said as she brushed a few thin hip-height strands off her suit leg. "And there's so many kinds."
+
+They reached a point in the path where it turned perpendicularly left and right. On the corner to their left was a solo pillar, emerging from the chest height green strands, not as tall as the ones they had found before, but peculiar to say the least. On one of it's arms, maybe 20 feet up, it held a metal rectangular box with three square buttons on it. Hanging from the box was a black cord with what looked like some sort of plug with a handle on the end. The top of a few of the large objects they had seen in the photo could be seen in the midst of the area.
+
+Everything about this place felt utterly fascinating to Fi. He could feel things happening. He could feel movement, though there was none. He could feel spirits moving throughout the structures and down the corridors and in the broken windows but there was nothing. There was nothing but silence and the \_shhhhhhhh_ifting of the greenery when the air pressed harder upon it.
+
+One of the beasts let out a noise that he had heard before. It was out of sight but not for, hidden the greenness. Fi changed direction and started toward the sound, it lingered, like a gutteral moan. The beasts long arm extending from it's back gave it away and Fi could see what it was approaching. Once he got close though, it went quiet and examined the object with a softness. It was a metal version of the beast itself. A different shape and slightly smaller, but it was very similar otherwise.
+
+"Eta, come look at this." He called back to her. Not realizing she was no more than a couple strides behind him.
+
+"What is that?"
+
+"I think it's them." Fi pointed toward the beasts. "But not real."
+
+"Hmm. Maybe they were popular here too." She said, stepping forward and placing a hand on it's cold surface.
+
+Fi started seeing more of these sorts of details as he waded through the pathway. The beings from the image were taking shape more and more. He could now almost see them moving around like they were actually there.
+
+"I wonder how many of them there was." Said Fi. "And how big they were. And what color they were." He said, furrowed brow, mind floating through broken glass and bouncing off debris.
+
+Step. Step. Eta sended his burning fervor. "Maybe we'll find out."
+
+"You think? Do you think we could meet them?"
+
+"Maybe if we see another Collector." She said, words lingering, still unsure of the machines motivations.
+
+"I think that's them too. But I can't make sense of something."
+
+"What's that?"
+
+"Why did they leave?"
+
+"What makes you think they're gone? We're hear."
+
+"I just get a feeling. Like it's just us. And maybe these two, and maybe a few other beings. But no others like us." He turned around to her. "You saw the Collector, it disappeared above us." Gesturing toward the upward unknown.
+
+"I guess you're right." Eta replied. "I have no idea why they left. I don't want to leave. Maybe you can find out when that thing comes back. Maybe they're in it."
+
+Their lack of a destination was becoming more apparent to both of them. So many of the structures were utterly obliterated that it would take them more time trying to find an entry than they had left of light.
+
+Far ahead at the end of the path. It looked as though one structure remained semi-intact. As it took shape above the tall green hairs, it looked to be more extravagant than any they had seen yet. It's 5 tall points, extending high above the structure itself on the front face, still remained. Large portions of the face were glass but with very unusual patterns. The center a circular shape with more depictions of some sort. It was the only one that wasn't atleast partially imploded.
+
+"Do you see that?" Eta pointed toward the structure.
+
+"Yeah, I don't think I could miss it."
+
+"How about that? It's getting darker, I think we need a place to sleep."
+
+The beasts were starting to linger closer to them, a clear sign that they were also losing energy and preparing for sleep.
+
+"Let's look inside." Said Fi. "It might not look the same inside." His expectations were not high for anything remotely tameable considering what they had seen so far.
+
+The rest of the buildings were a bit of a blur, now that they had a destination in mind. Their movements were quicker as well.
+
+Fi's mind had now gone to reserving the rest of their exploration of the surrounding area for the following day. The outside of the structure became more convincing as they approached.
+
+Not only it's glass and it's looming towers, but even the surface contained all sorts of curvature and points and even creatures frozen in light gray time. Like some sort of hidden power could bring them to life at any moment. Even the doors were enormous. The largest they had seen. There appeared to be two of them, and as they got within 50feet it was clear there were. Coming to a high point together in the middle. Thick black metal hinges extended across it's surface and looped back on itself. And the handle, a massive bar, looked like it was of the same material, the same texture.
+
+"Are you ready?" He looked back, asking the three of them as they stood in a row. That moment, he felt a sort of connection between their group. Like they were all that really made a difference about this place. Somehow no matter what they might find, they were the point.
+
+<words: 1776 wed, 1980 thurs>
 
 <Locked on ship scene>
 

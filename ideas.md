@@ -18,7 +18,7 @@ Later:
 Try to use as few modern words as possible
 Strive to decrease reading level
 Maybe all details are telling details
-Include pictures, _drawings_, images
+Include drawings (lots of drawings!), pictures, and images
 Number chapters/parts like 1,2,1,2,3,4,1,2,3,4,5
 Re-write to follow what's happening even closer, instead of "hands clawing at the ground", go "and clawed his hands at the ground"
 Dumb the speach down just a bit to be more readable
@@ -34,3 +34,4 @@ When doing a dialogue pass, ask if I can sit next to friends and listen to them 
 After the story is over, sit the characters down in a room and have a mental conversation with them.
 Get more detailed about the plants, look up plants in oregon
 Consider what season they are in
+Consider a better name for the pillars
