@@ -1750,7 +1750,17 @@ Not only it's glass and it's looming towers, but even the surface contained all 
 
 "Are you ready?" He looked back, asking the three of them as they stood in a row. That moment, he felt a sort of connection between their group. Like they were all that really made a difference about this place. Somehow no matter what they might find, they were the point.
 
-<words: 1776 wed, 1980 thurs>
+The towering door rolled through it's hinges smoothly. Surprising to him, considering it's size, he was expecting to press all of himself into it. It felt as though the space breathed outward, as a thin haziness emerged from the door engulfing him. The door hit it's movements end with a low thud that resonated through it's corridors. Fi envisioned flippping a switch like the one in his Harvester, bringing the dormant thing back to life again.
+
+It was brighter than he thought it would be. A tube of yellow light, so distinguished it looked like it could be pushed, beamed down from the circular window above and illuminated the back wall. His eyes landed at it's end, where a large wooden object with two crossing pieces hung like it floated on the back wall.
+
+He peaked back at the rest of them, encouraging them to follow. His second look, there was alot to take in. For how large the structure was on the outside, the inside felt even taller. And even more detailed. Huge columns almost as thick as the biggest pillars he had seen, continually drew his eyes upward, and they became caught in the complex patterns carved out of the ceiling, and coming to points at various places.
+
+For how empty it was in volume, it felt strangely occupied. Not only by the rows of long dark seats stretched strangely long, but by a feeling. An air of occupation.
+
+The beasts spread out in different directions, their feet leaving prints in the dirty floor that followed
+
+<todo: 2618 fri, 1980 sun>
 
 <Locked on ship scene>
 
