@@ -1,6 +1,6 @@
 ![Exogenesis book cover](https://cdn.jsdelivr.net/gh/jknapp25/exogenesis/images/cover-1.jpg =150x)
 
-# Part 1
+# Part 1: routine, glitch sighting
 
 His home pod illuminated.
 
@@ -79,7 +79,7 @@ Sinking to the floor he recognized the feelings, he couldn't recall something so
 
 His introduction.
 
-# Part 2
+# Part 2: fight with glitch
 
 In a windowless pod, there's no notion of day or night. His only experience of time came from the particular hue the outside environment took on towards the end of his workday. Other than that, the outside afforded him no secrets.
 
@@ -159,7 +159,7 @@ The boy was defenseless, unable to land any blows that made an impact, but still
 
 Finally, he shoved the beast to the side, seizing the opportunity to grasp it’s ratted mane and throw it against a pillar. It hit hard, let out a yelp, and collapsed to the ground. He also collapsed. Staring at the lifeless being while his vision faded into darkness.
 
-# Part 3
+# Part 3: flashback dream, following glitch
 
 The door closed loudly.
 
@@ -237,7 +237,7 @@ Bringing his other leg down as well, he crouched by the flow, and lowered both o
 
 He re-arranged his body to mimic the animal, thinking it might be best to consume the liquid the same way it does. The space between the liquid and the edge of the crack was not much though, so he had to get above and slide his head and torso down into it. He slid more and more, the liquid just out of reach, then slid down a little more. Losing balance, he flipped feet over head and rolled directly into the liquid catching gulps of it til he sat back up in it’s midst. He coughed involuntarily, the beckoning of himself reminding him of the creatures before. He looked at the creature sitting calmly on the edge of the crack and his coughing turned once again into uncontrollable laughter.
 
-The stream of liquid, came up above his legs now, and he just let it flow about him. Fro, the laughter, the warmth of the brighness, and the warmth of the liquid it felt too good to get out. From this angle, all he could see were the creatures muzzle, the pillars above, the blue atmosphere, and the winding crack before him.
+The stream of liquid, came up above his legs now, and he just let it flow about him. From the laughter, the warmth of the brightness, and the warmth of the liquid it felt too good to get out. From this angle, all he could see were the creatures muzzle, the pillars above, the blue atmosphere, and the winding crack before him.
 
 He sat, in it for a while, his mind wandering, something about the glimmering flow put him in a sort of trance. It felt easier to think. What have I missed out on? How could this have been here all this time? What is this place? Why did I think I would die? Where does this liquid come from?
 
@@ -247,7 +247,7 @@ Shivers rippled through his body. That was the question, he sensed it. It felt d
 
 Breaking from his trance, his companion was gone.
 
-# Part 4
+# Part 4: finds the glitches home
 
 He hobbled up on two feet, regaining a sense of his surroundings. The creature was nowhere in sight.
 
@@ -341,7 +341,7 @@ The artificial light was now almost unbearable. It felt representative of someth
 
 I’ll be there tomorrow. I have to see more. The thoughts slowly dissolved into dreams.
 
-# Part 5
+# Part 5: memory wiped, crashes into another harvester
 
 At one point in history, almost every engineer in the world decided that sheet metal was the greatest invention since sheets of bread. Rapidly everything was distilled into shapes that could be manufactured using this efficient new technology. Unfortunately, some engineer neglected to consider the fact that sheet metal creates an incredible inhospitable living space.
 
@@ -455,7 +455,7 @@ It hung like a rag doll out of a machine with what looked like the same interior
 
 The orange closed in on the alien world and returned to distilled shapes with far less detail. Instantly, adrenaline coursed through him, he felt a connection to that being and was not about to let it disappear. I have to do something. He spun in each direction, eyes scanning the walls and surfaces surrounding him. Nothing appeared to give him any clue, until he looked down to his left. There, a small lever had the words, "...this lever can be twisted to open the hatch...".
 
-# Part 6
+# Part 6: rescues girl (alien)
 
 The glass clicked as it tilted upward. A hostile wind hit him in the face.
 
@@ -523,7 +523,7 @@ The alien was still motionless.
 
 Instead of fear, he recognized the opportunity. Now his machine was free to move around, but the atmosphere was still very tumultuous. He rested his head back down, with atleast now a plan.
 
-# Part 7
+# Part 7: reviving girl
 
 His clothing made a strange sound as his movement peeled it from the sticky ground. More light now entered the area through the middle of the tracks and the air had returned to the stillness he first experienced.
 
@@ -639,7 +639,7 @@ You - are - like me. He whispered.
 
 Yes, I think so.
 
-# Part 8
+# Part 8: exploring each others bodies, re-finding the meadow
 
 It's hand raised to meet his arm still gently suspending it's head toward him, and ran it's finger tips across his skin. Studying the texture closely. The aliens eyes opened wider at the feeling and a soft smile inched across it's face.
 
@@ -757,7 +757,7 @@ The aliens laughter haulted as she felt a tenseness in his skin. "What's wrong?"
 
 <use the same description here as when I first described the meadow>
 
-# Part 9
+# Part 9: meet second dog
 
 A silence crept across the green floor as he lowered the alien down onto it. It was an open space, flat, green, sheltered by pillars of different shapes and sizes.
 
@@ -891,7 +891,7 @@ She smiled. "I don't know. But I like how it sounds."
 
 "What about" the beast jerked it's muzzle in the direction of the hillside, lit now only at the very top. It lept up and past them with such speed they had no time at all to react.
 
-# Part 10
+# Part 10: find beast's mountaintop abode
 
 By the time they had fully stood to their feet, the beast had ascended part of the hillside afar off and trailed off to the right side out of sight.
 
@@ -935,7 +935,7 @@ Eta waited for his move. And they cautiously stepped into the deeper darkness be
 
 The boy was a barrier between the beasts and Eta. "Will you be able to sleep like this?" He whispered into the nothingness, but no response came. Only then did the exhaustion within himself flood him.
 
-# Part 11
+# Part 11: begin journey to dam, deep conversations, find glitch' s carcass
 
 The morning brought with it a new sensation. He could have slept indefinitely but he could no longer feel the right half of his body making it very uncomfortable to remain in the position he was. Eta remained still, her face now visible in what appeared to be early light, eyes closed and mind somewhere else. Neither of the beasts remained so Fi, curious, stood to see where they might have gone to. He kept his movements quiet as not to wake her.
 
@@ -1107,7 +1107,7 @@ His memory returned. "The glitch." He said aloud. A cold wave rolled through his
 
 He wiped his eyes and opened them, immediately seeing a massive pink tongue coming at his face that he couldn't dodge. It left what felt like half of his face wet. He was unable to hold back a small smile. "I guess it's us 4." He stood and saw the other poised to continue moving on. It's gaze was encouraging in a way. It gave him hope meerly in the action of continuing. "Let's keep going." His voice took on a more positive tone. He looked back at the mess, _goodbye,_ a voice responded from somehere he could not tell, "goodbye my son."
 
-# Part 12
+# Part 12: Eta's sight returns
 
 Grabbing Eta's hand, they continued onward, at a faster pace than before. The beasts clearly could sense the new energy and were leaping onto each other and rolling hear and there as they maintained somewhat of a pace.
 
@@ -1143,7 +1143,7 @@ _Who did this?_ Who did this. That stuck.
 
 The words on the pods wall. The empty square outline in the meadow. Was the same being behind those as well? _What is going on?_
 
-# Part 13
+# Part 13: journey to dam
 
 The pillars continued on forever. Fi started to feel a pain in his stomach. "Let's stop to eat."
 
@@ -1359,7 +1359,7 @@ It was largely the same, until he came to the other side. There, a door. Partway
 
 "Eta, come here. I found something."
 
-# Part 14
+# Part 14: enter dam, find maps
 
 "What is it?" She got the idea. It's eeriness was self-evident.
 
@@ -1457,7 +1457,7 @@ Eta caught his eyes.
 
 Fi held Eta as the vibrant distance grew and expanded and shifted in every which direction, revealing colors they had not even known were real. Then they curled up closely surrounded by the hairy beasts lying close, and fell asleep soundly. The warm breeze, in the exposed space welcomed them into a deep rest neither of them had recognized ever experiencing.
 
-# Part 15
+# Part 15: journey to town
 
 Eta felt the softness of the hair, running her fingers through it and enjoying it's warmth, then opened her eyes expecting to see Fi curled up in front of her, but there was nothing. Startled at his disappearance she received a small jolt of energy and looked around the space. One pass, her eyes forming objects out of the sleepy haze, she didn't see anything. Second pass, she found him, disguised at the foot of the room, near a support beam for the structure, his back towards her.
 
@@ -1617,14 +1617,15 @@ Slowly taking it all in, Fi replied, "I wonder if these all use to be pods of so
 
 "I'm sure we'll find out," said Eta.
 
-# Part 16
+# Part 16: exploring town
 
 Ideas:
 
 - examine town, find relics
-- their curiousity grows about who people were
-- see collector again
-- Fi runs to Collector
+- curiousity grows about who people were
+- (?) see autonomous harvester
+- see second collector
+- Fi enters collector
 
 ---
 
@@ -1758,8 +1759,6 @@ He peaked back at the rest of them, encouraging them to follow. His second look,
 
 For how empty it was in volume, it felt occupied. Not only by the rows of long dark seats stretched strangely long, but by a feeling. An air of occupation.
 
--
-
 The beasts spread out in different directions, their feet dropping funny-looking prints in the dirty floor that followed them like breadcrumbs. Eta remained close, and noticeably quiet after sound felt like it was the owner of the space.
 
 The room divided into what felt like three long sections. All beginning at the side of the building they came in from and ending opposite that side. The main section, the one they entered through the door, was the largest and the other two, appearing symmetrical in nature were on either side.
@@ -1824,17 +1823,17 @@ As the light disappeared even further, the glow became even clearer and it was c
 
 Fi's eyes lingered on Eta's neck as her skin in the light illuminated and the curvature of her neck was somehow far more alluring than anything else, not even the intricate view of what they had discovered that day outside the window.
 
-his hand of its own accord, approached the strap around the base of her neck. "Can I..."
+His hand moved of its own accord, approaching the strap around the base of her neck. "Can I..."
 
 She raised her chin to make the strap more accessible. She leaned into his hand, his fingers warm against her neck, then with his other hand, he loosened the strap. The buttons down the suit came next, revealing more of her luminous skin, perfect in the light. She reached her hand, untying his as well and he completed the gesture, removing it himself after hers came first. Eta smiled as her boots were the final blockade to removing the full suit. Which he managed to loosen.
 
 He sat back in silence for a few moments. Eta watched his eyes as he took her body in.
 
-"There's nothing, like you." He said. He ran his hand gently across her skin from her feet up to her chest, noticing the crests, falls and smoothness.
+"There's nothing, like you," he said softly. Then leaned in and ran his hand gently across her skin from her feet up to her chest, eyes glancing up to hers for permission. He noticed the crests, falls and smoothness, still far unlike anything he had ever come across. She welcomed the gentle touch like it was quenching a forgotten thirst.
 
 <todo: 4277 words>
 
-# Part 17: Locked on ship
+# Part 17: kidnapped by collector
 
 He slipped into the bottom left corner of the enormous opening, like a rodent to it's burrow, then crouched and hugged the perimeter wall, hidden behind a large metal box as not to be seen.
 
@@ -2030,7 +2029,7 @@ Nearing the end of the hall, two doors appeared, and what looked like a staircas
 
 At the bottom of the stairs, more hallways shot off in each direction. He took a right and there, a glass door was the first sign of something truly interesting. Behind it, was what looked like an incredible array of colors and lights. They flickered and showed different numbers. They sort of reminded him of his Harvester. _This must be the cockpit._
 
-# Part 19: meeting the mom over the intercom thing
+# Part 19: meeting her mom over the intercom thing
 
 The endless array of lights, buttons, levers, were mesmerizing. There didn't seem to be a handle to open this door so he couldn't tell how he could even potentially get in.
 
