@@ -1754,19 +1754,91 @@ The towering door rolled through it's hinges smoothly. Surprising to him, consid
 
 It was brighter than he thought it would be. A tube of yellow light, so distinguished it looked like it could be pushed, beamed down from the circular window above and illuminated the back wall. His eyes landed at it's end, where a large wooden object with two crossing pieces hung like it floated on the back wall.
 
-He peaked back at the rest of them, encouraging them to follow. His second look, there was alot to take in. For how large the structure was on the outside, the inside felt even taller. And even more detailed. Huge columns almost as thick as the biggest pillars he had seen, continually drew his eyes upward, and they became caught in the complex patterns carved out of the ceiling, and coming to points at various places.
+He peaked back at the rest of them, encouraging them to follow. His second look, there was alot to take in. For how large the structure was on the outside, the inside felt even taller. And even more detailed. Huge columns almost as thick as the biggest pillars he had seen, drew his eyes upward, and caught them in the complex patterns of the ceiling.
 
-For how empty it was in volume, it felt strangely occupied. Not only by the rows of long dark seats stretched strangely long, but by a feeling. An air of occupation.
+For how empty it was in volume, it felt occupied. Not only by the rows of long dark seats stretched strangely long, but by a feeling. An air of occupation.
 
-The beasts spread out in different directions, their feet leaving prints in the dirty floor that followed
+-
 
-<todo: 2618 fri, 1980 sun>
+The beasts spread out in different directions, their feet dropping funny-looking prints in the dirty floor that followed them like breadcrumbs. Eta remained close, and noticeably quiet after sound felt like it was the owner of the space.
 
-<Locked on ship scene>
+The room divided into what felt like three long sections. All beginning at the side of the building they came in from and ending opposite that side. The main section, the one they entered through the door, was the largest and the other two, appearing symmetrical in nature were on either side.
+
+The long seats, all in the middle section were arranged in rows, all facing the opposite wall. It wasn't clear to Fi why they all faced that direction.
+
+"Any ideas?" asked Fi, splitting the volumetric silence.
+
+"For what?"
+
+"What this place is? Or was for?"
+
+"Giants?" They both laughed out loud for a few seconds, startling one of the beasts, a few paces off to the side. "It's really hard to say. I find it hard to believe that beings like us, or the ones we saw in those squares could create something like this. It's so big, and detailed."
+
+"Hmm. I think they made our Harvesters though and the Collector we saw." He responded.
+
+"Those are different though, there's something about this place that feels like more. I don't know what it is, but just look at that!" She pointed where the middle section rose above the two sides, and multi-sectioned windows were in a row. In between the windows, there were more depictions of beings interacting with each other. The different shades were still visible.
+
+"I see what you mean." Said Fi neck craned back, jaw agape, taking it all in.
+
+There was an area raised a few feet in the front with a few objects on it that were impossible to decipher the use for.
+
+The sound of the walking claws of the beasts cracked through the space, giving them a helpful idea of where they had wondered off to in their self-guided scent tours. Eta looked back after losing the sound of one of the beasts steps. It was ascending a curved staircase, one of two, again symmetrical about the opening they had entered through. It slowly chose it's steps though the steps looked sturdy far beyond the beasts weight.
+
+"Oh wow, look at that!" She highlighted it's intentions, discovering an array of towering metal tubes rising high above the upper balcony over the entryway. They followed the creature up the steps, and found an amazing arrangement of buttons, knobs, pedals, and elaborate carvings rising up on the tubes. Something about the object fascinated Eta.
+
+From above, the space looked less kept to Fi. The rows were not aligned, greenness emerged from cracks in everything and even through holes in the colorful broken windows. The middle of the balcony was occupied by an enclosed room with a black door with a curved top.
+
+Fi tested the knob, circular and very solid, but clearly not moved in very long considering it's difficulty to twist. The door opened with an ear shatteringly loud creaking sound that made Eta's face twist as well.
+
+The room was small and dark, some light falling down from above somewhere. It held a staircase spiraling upward into moore unknown.
+
+"Oh, I have to see what's up there." said Fi. Engulfed in curiousity once again. These steps were much louder, and they could see the loud sound of their steps moving the murky air within. The beasts were reluctanct to follow, holding fast to the bottom step until beckoned to go further by Eta.
+
+They circled 3 times before the steps disappeared into the ceiling. A square cutout made it look as though it could be moveable, so Fi pressed upward. The surface lifted and flung backward on a loose hinge and collapsed to the floor with a slap. Plenty of more light came down through the square to the others below. "You've got to see this!" said Fi.
+
+They crawled up into the room, the staircase still continuing upward. But behind them, there were two rods on either wall holding what looked like hundreds of colorful suits. Fi touched them, the fabric very strange to him, then pulled one out. Having been pressedup against the others, it's color was still largely intact below dirty shoulders of it. Eta smiled with delight, very entertained by the assortment of colors. They looked to be the same type of garment, but in different sizes, and not enclosed like their suits. Fi placed one on himself, it's arms extremely large and strange. Eta laughed and found a blue one that suited her. As she was putting one on, her arm hit a rope they somehow hadn't noticed before. Fi followed it up to the ceiling where it looked like it continued through a hole not much larger than it.
+
+"I'm going to keep going up", said Fi, keeping his knew garment on.
+
+"Okay," Eta followed.
+
+The stairs ended at another flat door and Fi flipped it open again, making a loud noise as it fell to the floor. Significantly more light came through this time. They climbed up and the room had huge windows on every wall and came to a very definite point high above their heads. Strangest of all, the middle of the room was occupied by a large metal object suspended on some sort of support system, and a large lever protruded, then connected to the rope they had seen before and disappeared into the floor. Other than that, the space was completely empty.
+
+All of the windows were still intact, so at first site there was no way of telling how high up they were.
+
+"Do you think there's a way we could see out?" said Eta.
+
+They looked around, then found a small lever below a few of the windows. Eta pressed on one and it broke free of the stickiness, but cracked a chunk of the glass with it. She watched as the piece fell far down below, almost a few seconds before it finally hit then exploded. "I found out how to open it." She said guiltily. Fi tried one and repeated the issue, breaking an even larger piece of glass, it crashing onto the roof of the structure below. Eta laughed, pleased at his fault.
+
+"At least we have some views now." Said Fi.
+
+"Speaking of, we are very high. I can see everything."
+
+"I can see the mountain with the crack. It's so far away."
+
+"We've gone far haven't we." Replied Eta.
+
+The light was dissipating, and was now a faint white glow behind the surrounding glass. They pulled out ration packs and enjoyed a few between the four of them. Very satisfying after all of the exploration they had done that day.
+
+As the light disappeared even further, the glow became even clearer and it was clear the air above outside the window was now black, but the light came from a large white circle.
+
+Fi's eyes lingered on Eta's neck as her skin in the light illuminated and the curvature of her neck was somehow far more alluring than anything else, not even the intricate view of what they had discovered that day outside the window.
+
+his hand of its own accord, approached the strap around the base of her neck. "Can I..."
+
+She raised her chin to make the strap more accessible. She leaned into his hand, his fingers warm against her neck, then with his other hand, he loosened the strap. The buttons down the suit came next, revealing more of her luminous skin, perfect in the light. She reached her hand, untying his as well and he completed the gesture, removing it himself after hers came first. Eta smiled as her boots were the final blockade to removing the full suit. Which he managed to loosen.
+
+He sat back in silence for a few moments. Eta watched his eyes as he took her body in.
+
+"There's nothing, like you." He said. He ran his hand gently across her skin from her feet up to her chest, noticing the crests, falls and smoothness.
+
+<todo: 4277 words>
+
+# Part 17: Locked on ship
 
 He slipped into the bottom left corner of the enormous opening, like a rodent to it's burrow, then crouched and hugged the perimeter wall, hidden behind a large metal box as not to be seen.
 
-Peering out, his eyes scanned every inch of the area for any movement, and sign of intelligent life. So much of the space was filled with the pillars that it was hard to tell if there might be something or someone behind them. It was also much darker in the space, the majority of the vast majority of the light coming from the opening, though a few light small blue light sources were scattered about deeper into the monstrosity.
+Peering out, his eyes scanned every inch of the area for any movement, and sign of intelligent life. So much of the space was filled with the pillars that it was hard to tell if there might be something or someone behind them. It was also much darker in the space, the vast majority of the light coming from the opening, though a few light small blue light sources were scattered about deeper into the monstrosity.
 
 He could hear the thud of his heart pumping while he held his breathe cautiously. After a few moments, it was clear no one or no thing had noticed him make his entrance, so staying low and moving slow, he crept out from behind the box. He moved quickly and tucked behind the next thing he could. A beam reaching high to the ceiling and traveling across to the opposite side where it met another. Tracing it with his eyes it called to attention even moreso how large the space was.
 
@@ -1814,7 +1886,7 @@ He hadn't noticed the deep blackness he was now entering. The lights that lit up
 
 The sphere lost it's dimensionality and became a small circle, growing smaller and smaller and smaller. Settling into it's position amongst the other lights. He recognized there was no use, and sank to the floor exhausted.
 
-# on the ship alone
+# Part 18: on the ship alone
 
 DSHJ! He jolted out of his slumber. Looking around his surroundings for a moment he was unable to place himself, and thought he was still in a dream. But the vibration below his supporting hand felt too real, and it quickly brought to memory the story of his entrapment.
 
@@ -1958,7 +2030,7 @@ Nearing the end of the hall, two doors appeared, and what looked like a staircas
 
 At the bottom of the stairs, more hallways shot off in each direction. He took a right and there, a glass door was the first sign of something truly interesting. Behind it, was what looked like an incredible array of colors and lights. They flickered and showed different numbers. They sort of reminded him of his Harvester. _This must be the cockpit._
 
-# meeting the mom over the intercom thing
+# Part 19: meeting the mom over the intercom thing
 
 The endless array of lights, buttons, levers, were mesmerizing. There didn't seem to be a handle to open this door so he couldn't tell how he could even potentially get in.
 

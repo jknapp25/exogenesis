@@ -35,3 +35,5 @@ After the story is over, sit the characters down in a room and have a mental con
 Get more detailed about the plants, look up plants in oregon
 Consider what season they are in
 Consider a better name for the pillars
+Maybe the picture he finds in the house alone is foreshadowing to when he and Eta and the pups and the mom are all together at the end
+Consider formatting dialoge without quotes
