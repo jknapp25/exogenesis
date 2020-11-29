@@ -4,6 +4,7 @@ When her mother extracts his memories and hacks the screens to play them, she hi
 The memories of previous harvester kids get's passed on to the next after they die
 
 Second pass:
+Do a quick spelling/grammar check, to make editing and reading for others easier
 Start by naming all of the scenes before shifting them
 When I'm doing passes with these ideas ^ pick a book that I think does these things well and start reading it before and during
 Re-call the grittiness of the original vision. He was basically called out of deadly, hypnotizing comfort into a deadly adventure, requiring EVERYTHING of him. But the beauty shines through regardless.
@@ -13,6 +14,7 @@ Talk about the silence of the forest, that could be eery
 Add wildfire
 Maybe progressively change descriptions as the mind stuff wears off, but maybe let their memories coming back lead the way, might be good to do this after new chapters
 Consider her mom being more involved throughout, like arranging things in places for her
+Put newspaper clippings in story that give info, and put actual images of oregon people in the bar part
 
 Later:
 Try to use as few modern words as possible
@@ -37,3 +39,4 @@ Consider what season they are in
 Consider a better name for the pillars
 Maybe the picture he finds in the house alone is foreshadowing to when he and Eta and the pups and the mom are all together at the end
 Consider formatting dialoge without quotes
+Research how to write a movie script

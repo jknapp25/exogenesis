@@ -1,5 +1,7 @@
 ![Exogenesis book cover](https://cdn.jsdelivr.net/gh/jknapp25/exogenesis/images/cover-1.jpg =150x)
 
+"Beauty, is not a means to an end. It is the end."
+
 # Part 1: routine, glitch sighting
 
 His home pod illuminated.
@@ -1829,13 +1831,103 @@ She raised her chin to make the strap more accessible. She leaned into his hand,
 
 He sat back in silence for a few moments. Eta watched his eyes as he took her body in.
 
-"There's nothing, like you," he said softly. Then leaned in and ran his hand gently across her skin from her feet up to her chest, eyes glancing up to hers for permission. He noticed the crests, falls and smoothness, still far unlike anything he had ever come across. She welcomed the gentle touch like it was quenching a forgotten thirst.
+"There's nothing, like you," he said softly. Then leaned in and ran his hand gently across her skin from her feet up to her chest, eyes glancing up to hers for permission. He noticed the crests, falls and smoothness, still far unlike anything he had ever come across. She welcomed the gentle touch like it was quenching a forgotten thirst. Then pressed into him as he lowered, enjoying the extra warmth.
 
-<todo: 4277 words>
+A gentle breeze flew threw the open window above their head, through the space and exited through the open window below.
+
+"I'm getting a bit cold." She whispered to Fi, having just closed his eyes.
+
+Without a word, he was sitting up, and looking around for ideas. He stood and stepped over the two creatures huddled together at their feet, then continued down to the level below via the open door. He re-appeared with an armful of multi-colored suits and flipped the door closed with his free hand. When close to her, he unraveled them one by one and layed them across her body.
+
+"Much better." She said, pulling them up to her neck. Then Fi dropped the rest of them upon her.
+
+"Ahhh!" Her muffled voice came from below, followed by laughter.
+
+He cleared the excess off and joined her below the layers. She pressed her feet, still somewhat cold, against his legs, and they trailed off to sleep.
 
 # Part 17: kidnapped by collector
 
-He slipped into the bottom left corner of the enormous opening, like a rodent to it's burrow, then crouched and hugged the perimeter wall, hidden behind a large metal box as not to be seen.
+DONG...
+
+Eta and Fi jolted. The sound exploded into the room like it was released from captivity. Fi swung his head back and saw one of the beasts jumping back from having been standing on it's back two legs the front ones up on the massive metal object in the room. The sound didn't continue, but the ringing inside his ears did. And the object continued swinging back and forth.
+
+Fi lowered his head to look inside the object and saw a large swinging ball hanging inside. Clearly it was the source of the annoyance. But it was amazing to him that it could make such an overwhelmingly loud noise.
+
+"Awake?" He said to Eta jokingly.
+
+"What was that?!" She shouted.
+
+"He was taking a look." Fi said, gesturing to the beast now resigned in terror to the opposite corner of the room.
+
+"Ah, wow. That thing is loud! What is that sound?" She asked.
+
+"I think it's inside your head. It's still lingering for me too."
+
+"No no, there's something else. Can you hear it?" They stood still for a few moments after the click-clack of the beasts feet stopped from their movements. A dull roar hummed somewhere outside.
+
+"Yeah, what is that?" He moved over to the wall near where their feet had been and got close to it. The surface didn't appear to have any perforations, any places he could see through. _The other windows broke easily. What if the..._
+
+He disappeared down below and came back up with one of the objects that held the suits onto the metal rod they were on. It had a hooked top and a triangular body, the bottom rod wrapped in a material that looked similar to that of some of the pillars. Fi shifted it around in his hands and settled on a grip, holding onto the hooked part. _This feels right. I think this might work._
+
+He went to the bottom corner of one of the sections of window on the upper half of the wall by his head, then raised the object with one of the bottom corners of the triangle right in front of the glass, then he tapped it slightly. It cracked almost all the way across the corner of the window. Then he hit again and it disappeared, falling somewhere far below with a faint TING.
+
+The faint roar became slightly louder. Eta stood, curious of what might be out there. Fi's face was up to it looking around through the hole. Nothing was obviously the culprit at first glance, so he looked off more to the left and further over the tips of the group of tall pillars behind the building. There he saw movement. A large object disappeared behind the wall of pillars.
+
+Noticing he found something, Eta asked, "what is it?!".
+
+"I don't know," he said, "there was something moving, but I can't see it any more. Take a look."
+
+She pressed her face up to the warm glass, and winced her eye from the light risen over the horizon and waited. Nothing happened for a few moments, then one of the pillars shook violently and vibrated until it fell away and revealed what was hidden.
+
+"It's a harvester!", she said exuberantly, "there's another one!" She pulled back and looked Fi in the eyes, neither of them knowing what to think about the new intruder.
+
+"Should we go take a look at it?" Fi asked.
+
+"Yes! What if they know more about this place than we do?"
+
+"Hmm, okay, let's go."
+
+They gathered their ration back, put their suits back on and rushed down the staircase. Their loud steps resonated through the large space, making it feel alive once again. Something felt homey about it. The beasts sensed the urgency and kept up with their fast movements.
+
+Outside the building, they ran around it's perimeter and into the thick pillars behind it. There were no other buildings beneath the tall pillars, but another pathway was visible afar off to their right, skirting the perimeter of the small hill they were racing up.
+
+They moved quickly, leaping over large obstacles and keeping a watchful eye on what was afar off behind the pillars skirt. There bodies were sluggish, having only just woken up, making it difficult to keep up with their curiosity. Cresting the hill, the sound afar off became immediately more obvious, even over thir loud footsteps and the excited pounding within their heads.
+
+"I see it!" Shouted Eta at Fi, only a handlful of paces ahead. He stopped abruptly and looked back at her.
+
+"Where?!"
+
+She pointed toward the left, where the hill continued and rolled back up into another incline. In front of that, the pillars stopped and out into the openness, there a black object sat. Fi started in it's direction, while staying hidden within the pillars. Then reached a point where a pillar had fallen, created a perfect barrier to dip behind. The rest of them converged on the spot.
+
+"That looks kind of like a pod." He said, between rapid breathes.
+
+"But it's even smaller."
+
+"What else would it be? Look at all the pillars by it."
+
+Right when his words ended, a loud high pitched sounded came towards them from off to the right.
+
+"That's the harvester," said Eta.
+
+"Let's go."
+
+The four of them raced again through the pillars until they came across the machine, actively sawing through an enormous pillar. Fi stopped and looked back at Eta, she stopped beside him. They watched as the massive thing fell with loud cracks and shook the ground all around. It was a strange realization seeing it from the outside. Fi found himself saddened by what was being done to the pillar.
+
+He swallowed and stepped out from the cover.
+
+The machine wasn't nearly as tall as his or even her harvester, it appeared lower but maybe wider. The cockpit was almost non-existant, much too small for himself to have fit in. It didn't make sense to him, but he waved his hands to try to get the attention of it's operator anyway.
+
+The machine didn't acknowledge him at all. He grabbed a rock from the ground and threw it at the tiny cockpit. Nothing. Then threw another. And another. It just kept moving on to the next pillar.
+
+Eta yelled to him, "What if we..."
+
+Her voiced was consumed be the loud roar of a huge machine emerging directly overhead from the hillside. Fi recognized the Collector. It headed away toward the stack of pillars at the small pod back where they had been. Fi and Eta caught eyes and both started sprinting in it's direction.
+
+He called to her as they got closer, "stay in the pillars!" Not wanting anything to happen to her just in case. She lingered therein, behind the blockade they had before.
+
+The collector hovered as it had before above the huge stack of pillars and then opened it's bowels to begin consumption. Fi climbed the shifting stack after it was clutched steadily by the giant gripper. And held tightly to the thick cords going up into it's body. It raised him and the stack up into itself with total ease.
+
+He lept onto the side of the enormous opening, like a rodent to it's burrow, then crouched and hugged the perimeter wall, hidden behind a large metal box as not to be seen.
 
 Peering out, his eyes scanned every inch of the area for any movement, and sign of intelligent life. So much of the space was filled with the pillars that it was hard to tell if there might be something or someone behind them. It was also much darker in the space, the vast majority of the light coming from the opening, though a few light small blue light sources were scattered about deeper into the monstrosity.
 
@@ -1885,7 +1977,7 @@ He hadn't noticed the deep blackness he was now entering. The lights that lit up
 
 The sphere lost it's dimensionality and became a small circle, growing smaller and smaller and smaller. Settling into it's position amongst the other lights. He recognized there was no use, and sank to the floor exhausted.
 
-# Part 18: on the ship alone
+# Part 18: alone on the ship
 
 DSHJ! He jolted out of his slumber. Looking around his surroundings for a moment he was unable to place himself, and thought he was still in a dream. But the vibration below his supporting hand felt too real, and it quickly brought to memory the story of his entrapment.
 
