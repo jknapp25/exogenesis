@@ -1,5 +1,7 @@
 ![Exogenesis book cover](https://cdn.jsdelivr.net/gh/jknapp25/exogenesis/images/cover-1.jpg =150x)
 
+/exogenesis
+
 "Beauty, is not a means to an end. It is the end."
 
 # Part 1: routine, glitch sighting
@@ -1847,7 +1849,7 @@ He cleared the excess off and joined her below the layers. She pressed her feet,
 
 # Part 17: kidnapped by collector
 
-DONG...
+DYONG...
 
 Eta and Fi jolted. The sound exploded into the room like it was released from captivity. Fi swung his head back and saw one of the beasts jumping back from having been standing on it's back two legs the front ones up on the massive metal object in the room. The sound didn't continue, but the ringing inside his ears did. And the object continued swinging back and forth.
 
@@ -2121,7 +2123,7 @@ Nearing the end of the hall, two doors appeared, and what looked like a staircas
 
 At the bottom of the stairs, more hallways shot off in each direction. He took a right and there, a glass door was the first sign of something truly interesting. Behind it, was what looked like an incredible array of colors and lights. They flickered and showed different numbers. They sort of reminded him of his Harvester. _This must be the cockpit._
 
-# Part 19: meeting her mom over the intercom thing
+# Part 19: journey to mars
 
 The endless array of lights, buttons, levers, were mesmerizing. There didn't seem to be a handle to open this door so he couldn't tell how he could even potentially get in.
 
@@ -2199,6 +2201,95 @@ He found a rhythm in the solidarity and the tiredness though the days still seem
 
 One day a noise grew sort of loud. It sounded as though tiny objects were raining upon the outside of the ship. Looking out his window, he could see tiny things move past. Some even the size of his head. They moved so quickly it was impossible to tell what they looked like apart from just their color. It was an incredible site.
 
+3
+
+His days reduced to nothing more than sleep and visiting that only window. He noticed something. One of the lights in the blackness had grown, though only slight at first, as time passed it appeared to grow more rapidly.
+
+2
+
+After another dream. He woke early to look at that light, nothing was interesting anymore. His strength was all but completely gone. The sounds inside his midsection had quieted and the pain from hunger had gone. All the other lights in the blackness had frozen to him. All but the one. Now approaching, and growing rapidly.
+
+1
+
+It was twice as large now. No longer an orange rock. It now had markings all across it's surface, like the place he had left had been dipped in an orange substance and tossed out into nothingness.
+
+The sight was mesmerizing and intimidating. So foreign, he had no idea what to expect. It brought back memories of Eta, and a longing to be back with her. In that place, though largely destroyed, still hanging on to a feeling. Something incredible. The orange place looked so empty.
+
+0
+
+The number was gone. He layed in the bed staring at the spot it was on the wall, wondering what would happen next. A dull thud rattled throughout the entire ship and rocked him in the bed.
+
+He leaned out past the wall that ended the long row of beds and saw the space outside the room lit more than it had been since he had first entered. Though this time a bright orange light filled it.
+
+He stood quickly and walked out through the opening in the glass and stood at the window. Fi was stunned. Outside, the world reminded him of what he had seen when he was controlling the Harvester. It was an orange world. Flat, and what looked like some jagged hills in the distance, a darker orange. Other than a few large rock-looking objects scattered throughout the view there wasn't much else to look at. It clearly wasn't the same view as from inside the Harvester, but the similarity was a little too close for comfort.
+
+The world was so still it almost looked surreal. Then another collector dropped down into the view, it felt strange that such a large thing could land there and he didn't feel or hear anything at all.
+
+Then another landed equidistant on the other side of it.
+
+And another.
+
+And another.
+
+_What is this place?_ He thought, not having even considered there being so many of these machines. And what they all would be congregating for, he couldn't understand.
+
+A loud beeping started him and the lights within the large area in his ship turned green and started to blink. After a few seconds of nothing, the entire wall on the other side of the pillars from where he stood, started to lift and a sliver of orange light grew from the bottom of the door.
+
+The air surrounding him rushed out like a tornado and his breathing became incredibly difficult. He collapsed to the ground slowly like his body was moving through slower time and he strived to get the air he needed, though it wasn't happening. The gasps grew loud as his body churned inside him and his throat grew dry, then a figure came running through the opening up to him, but his site faded before it reached him.
+
+# Part 20: hearing the truth
+
+The light faded back in, though it was much whiter now. Not just the light but the walls, and the objects around him. It wasn't clear at all to Fi where he was now.
+
+He was lying and a tube came from his mouth where a clear object clung to his face. He reached to touch it and his hand was stopped in the process. It entered his view. Placed his hand back to his side and pulled the tube and the clear object from his face. Then touched something above his head and some beeping sounds stopped.
+
+_Another one!_ He thought, recognizing the being as similar to himself and Eta.
+
+"Who are you?" He asked when his face became unobstructed.
+
+The being didn't respond but set a few things down and sit in a chair at the foot of the room and looked at him. "There will be time for questions. Right now it's time for your body to rest and acclimate. I'll talk with you soon."
+
+His sight faded back into darkness.
+
+-
+
+He woke in the same room, though the other was not there. Fi sat up on his elbows and looked around. It was largely empty accept for a few strange objects with gauges and lights.
+
+He stood and examined the different items he found in the room one by one.
+
+"You're a curious one aren't you."
+
+Fi spun around to the other entering the room.
+
+He recognized she had the same color hair as Eta, though longer. She wore a suit like his but much newer looking. Her face was smooth, and her eyes welcoming. It gave Fi an err that she was safe.
+
+"Sit down." She said, gesturing to the bed where he had been lying.
+
+Fi slowly walked back and sat down on it's edge.
+
+"So who are you?" He asked, more purposefully this time.
+
+"I have been observing you -" She stopped. "Or better yet, I've been overseeing you ever since you set foot on earth."
+
+"Earth?"
+
+"Yes Earth. That is the planet you were harvesting." She looked him more directly in the eyes. "I don't expect this to make much sense, but you have to listen carefully."
+
+He nodded, catching the sincerity in her voice.
+
+"Earth is where hunmanity began. Beings like you and I. We lived there for a long time and eventually some humans set their eyes in space because we were destroying earth. What you have been traveling through the last 14 days. So we left earth, all of us. But migrating away from earth was incredibly resource intensive. As we lept from planet to planet we found more resources to help us survive, but not enough. No place we found was even close to as hospitable as earth, and we were dying because of it. We are dying. So those ones that looked out into space, started looking back. Back to Earth. After we had left, the planet came back and it started to thrive again. But they didn't tell anyone that. Instead, they hid Earth. They erased it's history and erased the collective memory of Earth. But they sent some back to take what it created. The young, the easily maleable, the easily forgotten, those without connections and without family. You are one of those. You had no family. You were taken and told that you would do good for humanity, but you were just a tool. Left to die on a forgotten place, that they were determined to ruin to support our migration further into emptiness."
+
+"Why are you telling me this?" Asked Fi.
+
+She looked down at the ground and sighed. "Because I sent you there." A pause. "And I sent her too."
+
+"You sent us there to die?" He said fervently.
+
+"No! No. Listen. Listen to me. I sent you back to start anew. To restart the human race from a blank slate. The rest of humanity is hypnotized by the trinkets and things we have made. They are only still around to support the migration in other ways. We're spread across 6 planets now, extending deeper and deeper into space. But it's fruitless, they are on a death spiral. There's no place like Earth...You, and her, are our only hope."
+
+# Part 21: releasing the truth, leaving
+
 ---
 
 You are the explorer in the story!
+<todo: 1533>

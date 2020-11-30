@@ -15,6 +15,7 @@ Add wildfire
 Maybe progressively change descriptions as the mind stuff wears off, but maybe let their memories coming back lead the way, might be good to do this after new chapters
 Consider her mom being more involved throughout, like arranging things in places for her
 Put newspaper clippings in story that give info, and put actual images of oregon people in the bar part
+Maybe the lady in the classroom at the start was her mom
 
 Later:
 Try to use as few modern words as possible
