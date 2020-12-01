@@ -16,6 +16,7 @@ Maybe progressively change descriptions as the mind stuff wears off, but maybe l
 Consider her mom being more involved throughout, like arranging things in places for her
 Put newspaper clippings in story that give info, and put actual images of oregon people in the bar part
 Maybe the lady in the classroom at the start was her mom
+Maybe they can decouple meanings of words from memories, or associate them to different memories
 
 Later:
 Try to use as few modern words as possible

@@ -2283,13 +2283,143 @@ He nodded, catching the sincerity in her voice.
 
 She looked down at the ground and sighed. "Because I sent you there." A pause. "And I sent her too."
 
-"You sent us there to die?" He said fervently.
+"You sent us there to die?" He said with an oddly calm demeanor.
 
-"No! No. Listen. Listen to me. I sent you back to start anew. To restart the human race from a blank slate. The rest of humanity is hypnotized by the trinkets and things we have made. They are only still around to support the migration in other ways. We're spread across 6 planets now, extending deeper and deeper into space. But it's fruitless, they are on a death spiral. There's no place like Earth...You, and her, are our only hope."
+"No! I mean, no." Second times a charm. "Listen to me. I sent you back to start anew. To restart the human race from a blank slate. The rest of humanity is hypnotized by the trinkets we have made. They are only still around to support the migration in other ways. We're spread across 6 planets now. Extending deeper and deeper into space. But it's fruitless, they are on a death spiral. There's no place like Earth...You, and Ella, are our only hope."
+
+-
+
+"Ella." He said confused. "Who's Ella?"
+
+"She's the girl on Earth. Who you were with." She pursed her lips together like her words were moving faster than she wanted them to. "She's my daughter."
+
+Fi looked through her and and slowly repositioned his gaze directly to the wall opposite where he sat, taking it all in. That word, daughter. He recognized it's meaning, but how so he couldn't recall. Much of what she was saying, he understood, though he wasn't sure how. They felt like words, left buried, and dug up and they look exactly the same.
+
+"Why?"
+
+"I told you why. Because we have no other..."
+
+"No." He interjected. "Forget everything else. Why would you do that to your daughter? Why wouldn't you go with her?"
+
+She sat back in the seat and breathed in half of the room.
+
+"I couldn't leave, they would find me. Someone had to hide what was happening. I knew I only needed to do it for awhile until harvesting became fully automated. Ella was the last human Harvester, her temporary blindness was a step toward self-controlled machines. Now there are no humans, on any planet that harvest or collect. And you were there for less than a month."
+
+"What?"
+
+"Your brain was wiped."
+
+He stopped her. "No, that's not possible."
+
+"Let me continue. Your brain was wiped. And your memories were replaced with the memories of the previous occupant. That's how it's been done for decades. The chose to start temporary blinding the occupants because it was found sight was a big influencer on longevity."
+
+"What do you mean by longevity?" He asked.
+
+"How long they lasted."
+
+"Until what?" Raising his voice.
+
+Again she pursed her lips. "Until death...Occupants are considered disposable, little is spent on their well-being. Most die after no more than 6 months of indescribable depression."
+
+"You sent your daughter to die of depression?"
+
+"Of course not! I wanted her to find you. I did everything I could, including hacking your visuals in your harvester."
+
+His skin tensed. _The glitch._ "You knew about the glitch?"
+
+"Is that what you called it? Wait. What did you see?"
+
+"The glitch. It was terrifying at first. It looked like it wanted to kill me. It had matted hair and made noises at me and then attacked me. It tried to kill me."
+
+She immediately stood to her feet, walked to him and stood in front of him. Eyes locked on his, she grabbed both of his arms sternly. "You saw an animal?" With laser eyes on his.
+
+"What's an animal? I don't know what that is."
+
+She slid a device out of a pocket in her chest, pressed on it a few times and showed it to him. On the device was a depiction, similar to that of the Glitch.
+
+He said nothing for a moment, recalling the pillars and the flowing liquid it had brought him to. "Yes. Like that."
+
+She withdrew, cover her face with her free hand. Her eyes looked so startled, he wasn't sure what to think of the expression.
+
+"What?"
+
+"You're telling me, there's life on earth?" She ran her hand through her hair. "Jesus Christ." Then started looking through the room like everything was now on her mind.
+
+"Earth was written off. We thought there was nothing. I sent her there because the world here is no longer worth living in, the migration is ruining us. But if there is life on earth..." She paced the small room. "I mean, I suspected it was possible. But I thought I was going to have to send you information and tools and clones."
+
+"What are you saying?" Fi asked.
+
+"That changes everything." She said. "Earth is the best place for humans. But we thought we destroyed it. We thought it wasn't possible for it to come back. I did, but no one else believed me. And they had already wrote it off. Now only a few even know it ever existed."
+
+"We need to tell them," said Fi.
+
+"Well, we can't."
+
+"We have to!"
+
+"If we just tell them, SpaceX will write it off as a hoax. They will hide it at all cost and just exploit it even more like their own money printing press. And people will continue to grow poorer as the migration continues, and even more will die."
+
+"My memories. Can you access them?"
+
+She stopped her movement and looked up at him. "Why?"
+
+"Well, if you extracted them, did you save them?"
+
+"Yes, all memories are saved for legal purposes." She responded, starting to understand where he's going.
+
+"Can we access them, and use them to tell the others?"
+
+"Yes." She nodded. "Yes, I think that's possible." Smiling slightly. "Then we could string them together with footage of you and use that." She went quiet and continued her movement back and forth around the room. She the stopped and looked him in the eye. "Are you ready to receive your memories again?"
+
+"What do you mean?"
+
+"Before you went to earth, your memories were fully wiped. Once there, your memories were only temporarily electronically wiped through your hand pressing on a scanner that also opened the hatch to the cockpit of your harvester. I'm asking, if you are ready to receive your original memories back. From before you were sent to Earth. To access them, we need a key. That key is your DNA. And that is stored in two places, a copy is stored at headquarters, and of course you, are right here. The only mechanism for that is a headset like the one Ella wore when controlling her harvester."
+
+In that moment Fi was confronted with the weight of all of his questions. Would this be the answer to that? Or did he even want to know? He could feel the darkness of the past, cold and lonely, as she had said, he had no one. He had no connections. No family. Would he want to experience that all over again?
+
+"Do I have a choice?" He asked.
+
+"Well, I can send you back without doing this. Or we can create the video and send it via an encrypted data stream to different outlets for mass consumption. The former was more like the original plan, and the latter has the potential of saving those that are already alive. I'll leave it up to you."
+
+_All I really want it Eta._ He thought. The past didn't appear to have anything for him now. And it sounded like no one there had done him any good anyway.
+
+_But the Glitch..._ The Glitch didn't know me. But helped me anyway. The thought was difficult but in that moment he understand what needed to be done.
+
+"Let's make it."
 
 # Part 21: releasing the truth, leaving
 
----
+They stood in front of the door, a circular glass window at head height revealed the clean white hallway behind.
+
+Tapping on the device from her pocket and looking up at Fi intermittently, she said hastily, "We need to be incredibly careful. There are mechanical eyes like the one you saw in the Harvester, all over this place. I just enabled the same logic that the Harvesters use to obscure the environment to hide us from the cameras sight. But I can't do anything about the sound we make, so we need to be extremely quiet."
+
+"Understood." Fi responded.
+
+"Now we're going to go to one of the main storage bays and find a replacement headset. Then we'll go to a control room and create the video. There's no humans on this planet anymore, but that doesn't mean this will be easy. The eyes are very sensitive to sound as well and if they detect anything that seems like an intruder, they will project radiation that makes you feel like you are burning alive. Trust me, it's not pleasant. So stay quiet."
+
+She waved her arm over a blue square on the wall and it went green. Then she pulled on the doors handle opening it slowly. Then looked out, scanning the ceiling for the dark observers. "This way."
+
+They took the right hallway and weaved their way through more halls until landing landing in another room at the end of a long hallway. Certain eyes followed their movement but others did not.
+
+In the room, "give me your arm," she said.
+
+He held is arm out to her and she pulled his suit up exposing his forearm then pulled grabbed something out of cabinet. She pulled something off of it and then stuck him in the arm, the shiny thin metal piece smoothly inserting itself into his skin. "This will protect your cells and internal organs for a short time out there. And this..." grabbing an object much like the one from the room before out of a box, "will help you breathe." She placed it over his face and tightened it then placed a small box in one of his pockets and pressed a button on it. "Breathe in deeply." He did. "See?"
+
+"Yes," his voice muffled beneath it. "Let's go."
+
+She paused and looked at him before opening, the square green. Then they went, running quickly, over sand-like dirt, past a Collector, to a huge beige structure ominous in it's size. She scanned her arm again and they were in.
+
+The inside of this place was much more gray, it reminded him of the interior of the Collector, lots of metal and boxes everywhere.
+
+They followed the perimater of the space barely making noise with their steps and weaved through boxes stacked 30 feet high to a long row of smaller ones. She pressed a few buttons on a display on the side of one and top of the box opened freely. She grabbed what she needed and they were off again. Weaving through space once again. They stopped behind one stack of boxes and Fi leaned flush against it. She said almost inaudibly, "the next door has multiple eyes above it be very careful." Right after she said that, the box, deceptively light in the greater weightlessness of this planet, slid back and landed on the ground below making a loud crashing noise. Sirens went off loudly.
+
+"Run!" She shouted.
+
+They shot off in another direction and exited the building. For a moment, Fi felt his legs start to burn painfully.
+
+Outside, they ran to another nearby structure and entered through a back door.
+
+# Notes
 
 You are the explorer in the story!
-<todo: 1533>
+<todo: -204>
